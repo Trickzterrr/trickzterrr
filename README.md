@@ -23,7 +23,7 @@
 
 
 <details>
-<summary><b>　　　　　　　　　　　　　　　　　　　　　Click here!</b></summary>
+<summary><b>　　　　　　　　　　　　　　　　　　　Click here!</b></summary>
 <br>
 　　　　　　　　　　　　
 <a href="https://www.tiktok.com/@trickzterrr">TikTok page</a> 　　<a href="https://en.pronouns.page/@Trickzterrr">Pronouns Page</a> 　　<a href="https://trickzterrrr.straw.page">Strawpage</a> 　　
