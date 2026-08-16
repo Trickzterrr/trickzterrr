@@ -1,4 +1,5 @@
-　　　　　　　　　　　　　　**TRICKSTER / ULTRON / ULTRON'S WIFEY**
+<p align="center">
+**TRICKSTER / ULTRON / ULTRON'S WIFEY**
 
 　　　　　　　　　　〃 ♯ 　　　　 ‘ ​🇹​​🇭​​🇪​​🇷​​🇪​ ​🇮​​🇸​ ​🇴​​🇳​​🇱​​🇾​ ​🇴​​🇳​​🇪​ ​🇵​​🇦​​🇹​​🇭​ ​🇹​​🇴​ ​🇵​​🇪​​🇦​​🇨​​🇪​, ‘ 
 
@@ -11,24 +12,17 @@
 +✟+—————————————————————————————————————————+✞+
 
 
-　　　　　　I'm Trickster, but usually people call me Trick for short. I also go by Nam-gyu, Voyager, 
-　　　　　　Monty, or Hades.
-
-　　　　　　　　　　　　　　　　　　　Pony Town's ULTRON
-
-　　　　　　　　　　　　　　　　Im **19** !!  /  𝐂𝐚𝐧𝐨𝐧𝐥𝐲 𝐔𝐥𝐭𝐫𝐨𝐧’𝐬 𝐰𝐢𝐟𝐞 !!　　　　　　　  
-
-　　　　　　　　　　　　 
-
-
-+✟+—————————————————————————————————————————+✞+
 
 
 <details>
-<summary><b>　　　　　　　　　　　　　　　　　　　Click here!</b></summary>
+<summary><b>　　　　　　　　　　　　　　　　　　　Click here for info!</b></summary>
 <br>
 　　　　　　　　　　　　
 <a href="https://www.tiktok.com/@trickzterrr">TikTok page</a> 　　<a href="https://en.pronouns.page/@Trickzterrr">Pronouns Page</a> 　　<a href="https://trickzterrrr.straw.page">Strawpage</a> 　　
+
+  　　　　　　ɪ'ᴍ ᴛʀɪᴄᴋꜱᴛᴇʀ, ʙᴜᴛ ᴜꜱᴜᴀʟʟʏ ᴘᴇᴏᴘʟᴇ ᴄᴀʟʟ ᴍᴇ ᴛʀɪᴄᴋ ꜰᴏʀ ꜱʜᴏʀᴛ. ɪ ᴀʟꜱᴏ ɢᴏ ʙʏ ɴᴀᴍ-ɢʏᴜ, ᴠᴏʏᴀɢᴇʀ, ᴍᴏɴᴛʏ, ᴏʀ ʜᴀᴅᴇꜱ.
+
+　　　　　　　　　　　　　　　　Im **19** !!  /  𝐂𝐚𝐧𝐨𝐧𝐥𝐲 𝐔𝐥𝐭𝐫𝐨𝐧’𝐬 𝐰𝐢𝐟𝐞 !!　　　
 </details>
 　　　　　　　　　　　　
 
@@ -37,3 +31,4 @@
 
 
 　　　　　　　　　　　　　　![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2FTrickzterrr&label=TRICKSTER'S%20VISITORS&countColor=%23ba68c8)
+</p>
