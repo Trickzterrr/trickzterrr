@@ -14,9 +14,9 @@
 　　　　　　I'm Trickster, but usually people call me Trick for short. I also go by Nam-gyu, Voyager, 
 　　　　　　Monty, or Hades.
 
-　　　　　　　　　　　　　　　　　　　　　　　Pony Town's ULTRON
+　　　　　　　　　　　　　　　　　　　Pony Town's ULTRON
 
-　　　　　　　　　　　　　　　　　　　　Im **19** !!  /  𝐂𝐚𝐧𝐨𝐧𝐥𝐲 𝐔𝐥𝐭𝐫𝐨𝐧’𝐬 𝐰𝐢𝐟𝐞 !!　　　　　　　  
+　　　　　　　　　　　　　　　　Im **19** !!  /  𝐂𝐚𝐧𝐨𝐧𝐥𝐲 𝐔𝐥𝐭𝐫𝐨𝐧’𝐬 𝐰𝐢𝐟𝐞 !!　　　　　　　  
 
 　　　　　　　　　　　　 
 
