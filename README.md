@@ -1,5 +1,5 @@
 <p align="center">
-**TRICKSTER / ULTRON / ULTRON'S WIFEY**
+TRICKSTER / ULTRON / ULTRON'S WIFEY
 
 　　　　　　　　　　〃 ♯ 　　　　 ‘ ​🇹​​🇭​​🇪​​🇷​​🇪​ ​🇮​​🇸​ ​🇴​​🇳​​🇱​​🇾​ ​🇴​​🇳​​🇪​ ​🇵​​🇦​​🇹​​🇭​ ​🇹​​🇴​ ​🇵​​🇪​​🇦​​🇨​​🇪​, ‘ 
 
