@@ -1,7 +1,7 @@
 <p align="center">
 TRICKSTER / ULTRON / ULTRON'S WIFEY
 
-　　　　　　　　　　〃 ♯ 　　　　 ‘ ​🇹​​🇭​​🇪​​🇷​​🇪​ ​🇮​​🇸​ ​🇴​​🇳​​🇱​​🇾​ ​🇴​​🇳​​🇪​ ​🇵​​🇦​​🇹​​🇭​ ​🇹​​🇴​ ​🇵​​🇪​​🇦​​🇨​​🇪​, ‘ 
+<p align="center">〃 ♯ 　　　　 ‘ ​🇹​​🇭​​🇪​​🇷​​🇪​ ​🇮​​🇸​ ​🇴​​🇳​​🇱​​🇾​ ​🇴​​🇳​​🇪​ ​🇵​​🇦​​🇹​​🇭​ ​🇹​​🇴​ ​🇵​​🇪​​🇦​​🇨​​🇪​, ‘ 
 
 
 
@@ -9,20 +9,20 @@ TRICKSTER / ULTRON / ULTRON'S WIFEY
 
 
 
-+✟+—————————————————————————————————————————+✞+
+<p align="center">+✟+—————————————————————————————————————————+✞+
 
 
 
 
 <details>
-<summary><b>　　　　　　　　　　　　　　　　　　　Click here for info!</b></summary>
+<summary><b>　　　　　　　　　　　　　　　　　　　<p align="center">Click here for info!</b></summary>
 <br>
 　　　　　　　　　　　　
-<a href="https://www.tiktok.com/@trickzterrr">TikTok page</a> 　　<a href="https://en.pronouns.page/@Trickzterrr">Pronouns Page</a> 　　<a href="https://trickzterrrr.straw.page">Strawpage</a> 　　
+<p align="center"><a href="https://www.tiktok.com/@trickzterrr">TikTok page</a> 　　<a href="https://en.pronouns.page/@Trickzterrr">Pronouns Page</a> 　　<a href="https://trickzterrrr.straw.page">Strawpage</a> 　　
 
-  　　　　　　ɪ'ᴍ ᴛʀɪᴄᴋꜱᴛᴇʀ, ʙᴜᴛ ᴜꜱᴜᴀʟʟʏ ᴘᴇᴏᴘʟᴇ ᴄᴀʟʟ ᴍᴇ ᴛʀɪᴄᴋ ꜰᴏʀ ꜱʜᴏʀᴛ. ɪ ᴀʟꜱᴏ ɢᴏ ʙʏ ɴᴀᴍ-ɢʏᴜ, ᴠᴏʏᴀɢᴇʀ, ᴍᴏɴᴛʏ, ᴏʀ ʜᴀᴅᴇꜱ.
+<p align="center">ɪ'ᴍ ᴛʀɪᴄᴋꜱᴛᴇʀ, ʙᴜᴛ ᴜꜱᴜᴀʟʟʏ ᴘᴇᴏᴘʟᴇ ᴄᴀʟʟ ᴍᴇ ᴛʀɪᴄᴋ ꜰᴏʀ ꜱʜᴏʀᴛ. ɪ ᴀʟꜱᴏ ɢᴏ ʙʏ ɴᴀᴍ-ɢʏᴜ, ᴠᴏʏᴀɢᴇʀ, ᴍᴏɴᴛʏ, ᴏʀ ʜᴀᴅᴇꜱ.
 
-　　　　　　　　　　　　　　　　Im **19** !!  /  𝐂𝐚𝐧𝐨𝐧𝐥𝐲 𝐔𝐥𝐭𝐫𝐨𝐧’𝐬 𝐰𝐢𝐟𝐞 !!　　　
+<p align="center">19   /  𝐂𝐚𝐧𝐨𝐧𝐥𝐲 𝐔𝐥𝐭𝐫𝐨𝐧’𝐬 𝐰𝐢𝐟𝐞 !!　　　
 </details>
 　　　　　　　　　　　　
 
