@@ -2,14 +2,14 @@
 
 　　〃 ♯ 　　　　 ‘ ​🇹​​🇭​​🇪​​🇷​​🇪​ ​🇮​​🇸​ ​🇴​​🇳​​🇱​​🇾​ ​🇴​​🇳​​🇪​ ​🇵​​🇦​​🇹​​🇭​ ​🇹​​🇴​ ​🇵​​🇪​​🇦​​🇨​​🇪​, ‘ 
 
-+✟+———————————————————————————————————————————————————————————————————+✞+
++✟+—————————————————————————————————————————+✞+
 
 
-![Avatar](https://media.discordapp.net/attachments/1511162321982984355/1537867105985105940/19FD833B-13F2-4B31-9AC4-D8DAEC248F6B.png?ex=6a82941a&is=6a81429a&hm=f40c6f87406deab5288749fa7f8f33454c6b642bbd71ae381776c0ebffd87171&=&format=webp&quality=lossless&width=200&height=200)
+　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　![Avatar](https://media.discordapp.net/attachments/1511162321982984355/1537867105985105940/19FD833B-13F2-4B31-9AC4-D8DAEC248F6B.png?ex=6a82941a&is=6a81429a&hm=f40c6f87406deab5288749fa7f8f33454c6b642bbd71ae381776c0ebffd87171&=&format=webp&quality=lossless&width=200&height=200)
 
 
 
-+✟+———————————————————————————————————————————————————————————————————+✞+
++✟+—————————————————————————————————————————+✞+
 
 
 I'm Trickster, but usually people call me Trick for short. I also go by Nam-gyu, Voyager, Monty, or Hades.
