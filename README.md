@@ -4,9 +4,11 @@ TRICKSTER / ULTRON / ULTRON'S WIFEY
 <p align="center">〃 ♯ 　　　　 ‘ ​🇹​​🇭​​🇪​​🇷​​🇪​ ​🇮​​🇸​ ​🇴​​🇳​​🇱​​🇾​ ​🇴​​🇳​​🇪​ ​🇵​​🇦​​🇹​​🇭​ ​🇹​​🇴​ ​🇵​​🇪​​🇦​​🇨​​🇪​, ‘ 
 
 
+  <div align="center">
 
 　　　　　　　　　　　　　　    　　 ![Avatar](https://cdn.discordapp.com/attachments/1511162321982984355/1538586895502807040/891C47B4-72C7-474A-B9E1-69EDBFCA59DB.png?ex=6a833835&is=6a81e6b5&hm=a3574199f0c9b70deb396c1349cbb1cc96de35300c1456664a00b7afb50e7197&)
 
+</div>
 
 
 <p align="center">+✟+—————————————————————————————————————————+✞+
