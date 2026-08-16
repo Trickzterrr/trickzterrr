@@ -29,7 +29,5 @@ TRICKSTER / ULTRON / ULTRON'S WIFEY
 
 ![Banner](https://cdn.discordapp.com/attachments/1511162321982984355/1538580886314950748/2523F628-D96B-49D7-B6E6-E156B59F71D7.png?ex=6a83329c&is=6a81e11c&hm=1aa9d7360579f509ef28af242825ca79b0a3b672ba963df7dc79c60e7a378448&)
 
-
-<p align="center">
-  ![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2FTrickzterrr&label=TRICKSTER'S%20VISITORS&countColor=%23ba68c8)
-</p>
+  
+![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2FTrickzterrr&label=TRICKSTER'S%20VISITORS&countColor=%23ba68c8)
