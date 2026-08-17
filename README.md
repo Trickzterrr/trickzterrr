@@ -19,7 +19,11 @@
 <details>
 <summary><b>　　　　　　　　　　　　　　　　　　　<p align="center">Click here for info!</b></summary>
 <br>
-　　　　　　　　　　　　
+
+  <div align="center">
+    
+![Avatar](https://cdn.discordapp.com/attachments/1293182484384579647/1538989996365717685/pony-town-_ULTRON-15__MARVEL-dance-lie-blinking-padded-4x.gif?ex=6a84afa0&is=6a835e20&hm=89cbfea4175f32b620d1f3761430f0bd3dfeb2fd9e895307c4617322033265e7&)
+  
 <p align="center"><a href="https://www.tiktok.com/@trickzterrr">TikTok page</a> 　　<a href="https://en.pronouns.page/@Trickzterrr">Pronouns Page</a> 　　<a href="https://trickzterrrr.straw.page">Strawpage</a> 　　
 
 <p align="center">ɪ'ᴍ ᴛʀɪᴄᴋꜱᴛᴇʀ, ʙᴜᴛ ᴜꜱᴜᴀʟʟʏ ᴘᴇᴏᴘʟᴇ ᴄᴀʟʟ ᴍᴇ ᴛʀɪᴄᴋ ꜰᴏʀ ꜱʜᴏʀᴛ. ɪ ᴀʟꜱᴏ ɢᴏ ʙʏ ɴᴀᴍ-ɢʏᴜ, ᴠᴏʏᴀɢᴇʀ, ᴍᴏɴᴛʏ, ᴏʀ ʜᴀᴅᴇꜱ.
