@@ -16,46 +16,72 @@
 
 
 
-<details>
-<summary><b>　　　　　　　　　　　　　　　　　　　<p align="center">Click here for info!</b></summary>
-<br>
-
+<!-- FIRST DROPDOWN: SOCIALS -->
+  <div align="center"><details>
+  <summary><b>　　　　　　　　　　　　　　　　　　　<p align="center">⬇️ Socials ⬇️</p></b></summary>
+  <br>
   <div align="center">
     
 ![Avatar](https://cdn.discordapp.com/attachments/1293182484384579647/1538991173472092160/pony-town-_ULTRON-15__MARVEL-dance-lie-blinking-padded-4x_1.gif?ex=6a84b0b8&is=6a835f38&hm=85ec69506eb0e3e6d6c98f8389391ad3318a52e0af2cd68cc589e729e3ee489c&)
 
-  <p align="center"><a href="https://www.tiktok.com/@trickzterrr">TikTok page</a> 　　<a href="https://en.pronouns.page/@Trickzterrr">Pronouns Page</a> 　　<a href="https://trickzterrrr.straw.page">Strawpage</a> 
+  <p align="center">
+    <a href="https://www.tiktok.com/@trickzterrr">TikTok page</a> 　　
+    <a href="https://en.pronouns.page/@Trickzterrr">Pronouns Page</a> 　　
+    <a href="https://trickzterrrr.straw.page">Strawpage</a> 
+  </p>
 
-<p align="center">ɪ'ᴍ ᴛʀɪᴄᴋꜱᴛᴇʀ, ʙᴜᴛ ᴜꜱᴜᴀʟʟʏ ᴘᴇᴏᴘʟᴇ ᴄᴀʟʟ ᴍᴇ ᴛʀɪᴄᴋ ꜰᴏʀ ꜱʜᴏʀᴛ. ɪ ᴀʟꜱᴏ ɢᴏ ʙʏ ɴᴀᴍ-ɢʏᴜ, ᴠᴏʏᴀɢᴇʀ, ᴍᴏɴᴛʏ, ᴏʀ ʜᴀᴅᴇꜱ.
+  <p align="center">
+    𝗱𝗶𝘀𝗰𝗼𝗿𝗱 : 𝘁𝗿𝗶𝗰𝗸𝘇𝘁𝗲𝗿𝗿𝗿<br>
+    𝗠𝗮𝗿𝘃𝗲𝗹 𝗥𝗶𝘃𝗮𝗹𝘀 : 𝗨𝗹𝘁𝗿𝗼𝗻'𝘀 𝘄𝗶𝗳𝗲𝘆<br>
+    𝗙𝗼𝗿𝘁𝗻𝗶𝘁𝗲 : 𝗧𝗿𝗶𝗰𝗸𝘇𝘁𝗲𝗿𝗿𝗿𝗿
 
-<p align="center">19   /  𝐅𝐞𝐦𝐚𝐥𝐞  /  𝐂𝐚𝐧𝐨𝐧𝐥𝐲 𝐔𝐥𝐭𝐫𝐨𝐧’𝐬 𝐰𝐢𝐟𝐞 !!　　　
+![Avatar](https://cdn.discordapp.com/attachments/1511162321982984355/1539736835100639322/2858EBC2-7F22-4E0E-BE44-C1191B0BF862.png?ex=6a87672c&is=6a8615ac&hm=e2f71327d9f209556dead17d1d8985a77652c0c050a9e89aa4d706835e1d5da9&)
+    
+  </p>
+  </div>
+</details>
 
-<p align="center">𝘐 𝘧𝘰𝘭𝘭𝘰𝘸 𝘤𝘰𝘰𝘭 𝘱𝘦𝘰𝘱𝘭𝘦 𝘰𝘯 𝘎𝘪𝘵𝘩𝘶𝘣! <3
+<!-- SECOND DROPDOWN: ABOUT ME -->
+<details>
+  <summary><b>　　　　　　　　　　　　　　　　　　　<p align="center">⬇️ About me ⬇️</p></b></summary>
+  <br>
+  <p align="center">𝗛𝗶, 𝗜'𝗺 𝗧𝗿𝗶𝗰𝗸𝘀𝘁𝗲𝗿. 𝗜 𝗼𝗳𝘁𝗲𝗻 𝗴𝗼 𝗯𝘆 '𝗧𝗿𝗶𝗰𝗸' 𝗳𝗼𝗿 𝘀𝗵𝗼𝗿𝘁 - 𝗜 𝗱𝗼𝗻'𝘁 𝗺𝗶𝗻𝗱 𝗧𝗿𝗶𝗰𝗸𝘆 𝗲𝗶𝘁𝗵𝗲𝗿!</p>
+  <p align="center">𝗜'𝗺 𝟭𝟵! 𝗕𝗮𝗿𝗲 𝘁𝗵𝗮𝘁 𝗶𝗻 𝗺𝗶𝗻𝗱 𝗯𝗲𝗳𝗼𝗿𝗲 𝘁𝗿𝘆𝗶𝗻𝗴 𝘁𝗼 𝗶𝗻𝘁𝗲𝗿𝗮𝗰𝘁 𝘄𝗶𝘁𝗵 𝗺𝗲. 𝗦𝗵𝗲/𝗛𝗲 - 𝗜 𝗮𝗺 𝗮 𝗻𝗼𝗻 𝘀𝗵𝗮𝗿𝗶𝗻𝗴 𝗨𝗹𝘁𝗿𝗼𝗻 (𝗠𝗔𝗥𝗩𝗘𝗟), 𝗛𝗔𝗗𝗘𝗦 (𝗙𝗢𝗥𝗧𝗡𝗜𝗧𝗘), 𝗮𝗻𝗱 𝗗𝗮𝗿𝗸 𝗩𝗼𝘆𝗮𝗴𝗲𝗿 (𝗙𝗢𝗥𝗧𝗡𝗜𝗧𝗘) 𝘆𝘂𝗺𝗲𝘀𝗵𝗶𝗽𝗽𝗲𝗿! 𝗦𝗼 𝗜 𝘄𝗼𝘂𝗹𝗱 𝗽𝗿𝗲𝗳𝗲𝗿 𝗱𝗼𝘂𝗯𝗹𝗲𝘀 𝗻𝗼𝘁 𝘁𝗼 𝗶𝗻𝘁𝗲𝗿𝗮𝗰𝘁 𝘄𝗶𝘁𝗵 𝗺𝗲.</p>
+    <p align="center">𝗜 𝗟𝗢𝗩𝗘 𝘁𝗵𝗲 𝗰𝗼𝗹𝗼𝗿 𝗽𝘂𝗿𝗽𝗹𝗲 𝗮𝗻𝗱 𝘆𝗲𝘀 𝗮𝗹𝗹 𝗼𝗳 𝗺𝘆 𝘀𝗸𝗶𝗻𝘀 𝘄𝗶𝗹𝗹 𝗵𝗮𝘃𝗲 𝗮 𝗽𝘂𝗿𝗽𝗹𝗲 𝘁𝗶𝗻𝘁 𝘁𝗼 𝘁𝗵𝗲𝗺 𝗯𝗲𝗰𝗮𝘂𝘀𝗲 𝗜 𝗹𝗼𝘃𝗲 𝘁𝗵𝗲 𝗰𝗼𝗹𝗼𝗿 𝘀𝗼 𝗺𝘂𝗰𝗵. 𝗠𝘆 𝘄𝗵𝗼𝗹𝗲 𝗱𝗶𝘀𝗰𝗼𝗿𝗱 𝗽𝗿𝗼𝗳𝗶𝗹𝗲 𝗶𝘀 𝗽𝘂𝗿𝗽𝗹𝗲 𝗮𝗻𝗱 𝗜 𝗹𝗼𝘃𝗲 𝗶𝘁! &lt;3</p>
 
-<p align="center">+✟+—————————————————————————————————————————+✞+
-
-
-
-<br>
+  ![Avatar](https://cdn.discordapp.com/attachments/1511162321982984355/1539737218913013841/B5C9DE27-E1B1-4812-BDB6-D55A0C3F47F6.png?ex=6a876787&is=6a861607&hm=84e7c036fe7244e7267923f75587089276736a1618258e83af0bffc1d3e924b0&)
+  
+  <br>
+</details>
 
   <div align="center">
-    
-![Avatar](https://cdn.discordapp.com/attachments/1511162321982984355/1538645786206675044/D57E9CCD-9704-4EE8-A9EB-A8B4D9169538.png?ex=6a84c08e&is=6a836f0e&hm=aa12695a6779a3d5de01ac4c4d700b91265655e1fdb5a8b22c274746b02c0f80&)
   　
+<!-- THIRD DROPDOWN: DNI BYI -->
+<details>
+  <summary><b>　　　　　　　　　　　　　　　　　　　<p align="center">⬇️ INT / DNI / BYI ⬇️</p></b></summary>
+  <br>
+  <div align="center">
 
-<p align="center">ᴍʏ ᴍᴀʀᴠᴇʟ ʀɪᴠᴀʟꜱ ᴜꜱᴇʀɴᴀᴍᴇ : Ultron's wifey
+    
+![Avatar](https://cdn.discordapp.com/attachments/1293182484384579647/1538991173472092160/pony-town-_ULTRON-15__MARVEL-dance-lie-blinking-padded-4x_1.gif?ex=6a84b0b8&is=6a835f38&hm=85ec69506eb0e3e6d6c98f8389391ad3318a52e0af2cd68cc589e729e3ee489c&)
 
-<p align="center">𝐒𝐓𝐑𝐀𝐓𝐄𝐆𝐈𝐒𝐓 𝐌𝐀𝐈𝐍 + 𝐅𝐋𝐄𝐗 𝐓𝐎 𝐓𝐀𝐍𝐊   /  𝐔𝐋𝐓𝐑𝐎𝐍 𝐌𝐀𝐈𝐍 , 𝐂𝐇𝐀𝐌𝐏𝐈𝐎𝐍 𝟗𝟎+ 𝐇𝐎𝐔𝐑𝐒
+  <p align="center">
+    INT: If you like any of the following media: Five Nights at Freddy's, Squid Game, Marvel Comics, MCU movies, Marvel Rivals, Fortnite, Minecraft, ROBLOX, Sonic The Hedgehog, Poppy Playtime. Friendly folks, non problematic people, Ultron fans, FNAF security breach fans. <br>
+    
+  DNI: If you're 13 or under. Problematic people, Skin copiers, trvmp supporters, racists, p3dophiles, homophobes, ex friends, Ultron haters or haters of any of my yumes. <br>
+  
+  BYI: I am an ADULT! If you're uncomfortable with speaking to people age 18 or over, please avoid me! You will see me as mainly the following skins: Ultron, Dark Voyager, Hades, Nam-gyu. If I am sitting alone, please feel free to c+h!! Whisper to interact please, im very anti social and may not respond out in the open. Yes I will always randomly whisper crowns to people who are using skins of media that I love! I will also follow on Github if they have one. I will always ask for permission to friend you or sit next to you!
 
-<p align="center">𝘐'𝘭𝘭 𝘱𝘭𝘢𝘺 𝘸𝘪𝘵𝘩 𝘢𝘯𝘺𝘰𝘯𝘦 𝘢𝘴 𝘭𝘰𝘯𝘨 𝘺𝘰𝘶'𝘳𝘦 𝘧𝘳𝘪𝘦𝘯𝘥𝘭𝘺, 𝘢𝘥𝘥 𝘮𝘺 𝘥𝘪𝘴𝘤𝘰𝘳𝘥! <3
-
-<p align="center">ᴍʏ ꜰᴏʀᴛɴɪᴛᴇ ᴜꜱᴇʀɴᴀᴍᴇ : Trickzterrrr
-
-
-<p align="center">+✟+—————————————————————————————————————————+✞+
+  ![Avatar](https://cdn.discordapp.com/attachments/1511162321982984355/1539737045877133383/F891369F-E283-4F84-BD62-5E345A66EABF.png?ex=6a87675e&is=6a8615de&hm=af6fd85e99252f44c5625158f8a17b1e5696ee3ea1cd8b6a73c899a5922ac46b&)
+  
+  </p>
+  </div>
+</details>
 
 
 </details>
+
+  <p align="center">+✟+—————————————————————————————————————————+✞+</p>
 　　　　　　　　　　　　
 
   <div align="center">
