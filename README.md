@@ -6,7 +6,7 @@
 
   <div align="center">
 
-![Avatar](https://cdn.discordapp.com/attachments/1293182484384579647/1538991173472092160/pony-town-_ULTRON-15__MARVEL-dance-lie-blinking-padded-4x_1.gif?ex=6a84b0b8&is=6a835f38&hm=85ec69506eb0e3e6d6c98f8389391ad3318a52e0af2cd68cc589e729e3ee489c&)
+
 
 </div>
 
