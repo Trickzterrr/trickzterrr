@@ -6,7 +6,7 @@
 
   <div align="center">
 
-![Avatar](https://cdn.discordapp.com/attachments/1511162321982984355/1538645786722566194/0DAB6D55-4C62-40EE-B8F0-31736D9BE15B.png?ex=6a836f0e&is=6a821d8e&hm=e0065d66f9145b24f65ee5af35927d207a958e06f3418ae7f89c02aebdd6be99&)
+![Avatar](https://cdn.discordapp.com/attachments/1293182484384579647/1538991173472092160/pony-town-_ULTRON-15__MARVEL-dance-lie-blinking-padded-4x_1.gif?ex=6a84b0b8&is=6a835f38&hm=85ec69506eb0e3e6d6c98f8389391ad3318a52e0af2cd68cc589e729e3ee489c&)
 
 </div>
 
