@@ -66,7 +66,7 @@
   <p align="center">
     INT: If you like any of the following media: Five Nights at Freddy's, Squid Game, Marvel Comics, MCU movies, Marvel Rivals, Fortnite, Minecraft, ROBLOX, Sonic The Hedgehog, Poppy Playtime. Friendly folks, non problematic people, Ultron fans, FNAF security breach fans. Ships with characters I am using that are not problematic are no problem to me! Roleplayers, I don't mind as long as you're not being weird. <br>
     
-  DNI: If you're 13 or under. Problematic people, Skin copiers, trvmp supporters, racists, p3dophiles, homophobes, ex friends, Ultron haters or haters of any of my yumes. Problematic or disgusting ships! <br>
+  DNI: If you're 13 or under (being a weirdo). Problematic people, Skin copiers, trvmp supporters, racists, p3dophiles, homophobes, ex friends, Ultron haters or haters of any of my yumes. Problematic or disgusting ships! <br>
   
   BYI: I am an ADULT! If you're uncomfortable with speaking to people age 18 or over, please avoid me! You will see me as mainly the following skins: Ultron, Dark Voyager, Hades, Nam-gyu. If I am sitting alone, please feel free to c+h!! Whisper to interact please, im very anti social and may not respond out in the open. Yes I will always randomly whisper crowns to people who are using skins of media that I love! I will also follow on Github if they have one. I will always ask for permission to friend you or sit next to you!
 
