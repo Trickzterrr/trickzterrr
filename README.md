@@ -74,6 +74,8 @@
   
 If I am sitting alone, please feel free to c+h!! Whisper to interact please, im very anti social and may not respond out in the open. Yes I will always randomly whisper crowns to people who are using skins of media that I love! I will also follow on Github if they have one. I will always ask for permission to friend you or sit next to you!
 
+NOTE to the STH area: Yes My Shadow and Shadow E.X.E are SEPERATE people.
+
 ![Avatar](https://cdn.discordapp.com/attachments/1511162321982984355/1538645786206675044/D57E9CCD-9704-4EE8-A9EB-A8B4D9169538.png?ex=6a9146ce&is=6a8ff54e&hm=813b7367eb57506d4eb8a283dec974a90c320a15b5f6d6219b137a4a9e2e7678&)
   
   </p>
