@@ -1,9 +1,18 @@
 <p align="center">
 𝐓𝐑𝐈𝐂𝐊𝐒𝐓𝐄𝐑 / 𝐔𝐋𝐓𝐑𝐎𝐍 / 𝐔𝐋𝐓𝐑𝐎𝐍'𝐒 𝐖𝐈𝐅𝐄𝐘
 
-<p align="center">〃 ♯ 　　　　 ‘ ​𝘐 𝘸𝘢𝘴 𝘮𝘦𝘢𝘯𝘵 𝘵𝘰 𝘣𝘦 𝘯𝘦𝘸 , ‘ 
+<p align="center">
+  # &emsp; &emsp; &emsp; ‘ <i>𝘐 𝘸𝘢𝘴 𝘮𝘦𝘢𝘯𝘵 𝘵𝘰 𝘣𝘦 𝘯𝘦𝘸 ,</i> ‘
+</p>
 
-![Avatar](https://cdn.discordapp.com/attachments/1293182484384579647/1538991173472092160/pony-town-_ULTRON-15__MARVEL-dance-lie-blinking-padded-4x_1.gif?ex=6a84b0b8&is=6a835f38&hm=85ec69506eb0e3e6d6c98f8389391ad3318a52e0af2cd68cc589e729e3ee489c&)
+<p align="center">
+
+<p align="center">
+  
+![Avatar](https://github.com/user-attachments/assets/ee628553-f3d6-443e-a296-5e2a10594b40)
+
+
+</p>
 
 </div>
 
