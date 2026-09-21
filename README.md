@@ -106,7 +106,3 @@ If I am sitting alone, please feel free to c+h!! Whisper to interact please, im 
 
 
   <div align="center">
-    
-![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2FTrickzterrr&label=TRICKSTER'S%20VISITORS&countColor=%23ba68c8)
-
-</div>
