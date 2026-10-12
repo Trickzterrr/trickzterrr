@@ -52,12 +52,9 @@
   <summary><b>　　　　　　　　　　　　　　　　　　　<p align="center">⬇️ About me ⬇️</p></b></summary>
   <br>
   <p align="center">𝗛𝗶, 𝗜'𝗺 𝗧𝗿𝗶𝗰𝗸𝘀𝘁𝗲𝗿. 𝗜 𝗼𝗳𝘁𝗲𝗻 𝗴𝗼 𝗯𝘆 '𝗧𝗿𝗶𝗰𝗸' 𝗳𝗼𝗿 𝘀𝗵𝗼𝗿𝘁 - 𝗜 𝗱𝗼𝗻'𝘁 𝗺𝗶𝗻𝗱 𝗧𝗿𝗶𝗰𝗸𝘆 𝗲𝗶𝘁𝗵𝗲𝗿!</p>
-  <p align="center">𝗜'𝗺 𝟭𝟵! 𝗕𝗮𝗿𝗲 𝘁𝗵𝗮𝘁 𝗶𝗻 𝗺𝗶𝗻𝗱 𝗯𝗲𝗳𝗼𝗿𝗲 𝘁𝗿𝘆𝗶𝗻𝗴 𝘁𝗼 𝗶𝗻𝘁𝗲𝗿𝗮𝗰𝘁 𝘄𝗶𝘁𝗵 𝗺𝗲. 𝗦𝗵𝗲/𝗛𝗲 - 𝗜 𝗮𝗺 𝗮 𝗻𝗼𝗻 𝘀𝗵𝗮𝗿𝗶𝗻𝗴 𝘆𝘂𝗺𝗲𝘀𝗵𝗶𝗽𝗽𝗲𝗿! 𝗦𝗼 𝗜 𝘄𝗼𝘂𝗹𝗱 𝗽𝗿𝗲𝗳𝗲𝗿 𝗱𝗼𝘂𝗯𝗹𝗲𝘀 𝗻𝗼𝘁 𝘁𝗼 𝗶𝗻𝘁𝗲𝗿𝗮𝗰𝘁 𝘄𝗶𝘁𝗵 𝗺𝗲.</p>
+  <p align="center">𝗜'𝗺 𝟭𝟵! 𝗕𝗮𝗿𝗲 𝘁𝗵𝗮𝘁 𝗶𝗻 𝗺𝗶𝗻𝗱 𝗯𝗲𝗳𝗼𝗿𝗲 𝘁𝗿𝘆𝗶𝗻𝗴 𝘁𝗼 𝗶𝗻𝘁𝗲𝗿𝗮𝗰𝘁 𝘄𝗶𝘁𝗵 𝗺𝗲. 𝗦𝗵𝗲/𝗛𝗲 - </p>
 
-  <p align="center">𝐌𝐲 𝐛𝐞𝐥𝐨𝐯𝐞𝐝 𝐲𝐮𝐦𝐞𝐬 <𝟑: Ultron (ᴹᵃʳᵛᵉˡ / ᴹᵃʳᵛᵉˡ ᴿⁱᵛᵃˡˢ), Hades & Dark Voyager (Fₒᵣₜₙᵢₜₑ
-), Gorr the God Butcher (ᴹᵃʳᵛᵉˡ ᴿⁱᵛᵃˡˢ), and Nam-gyu (ˢqᵘⁱᵈ ᴳᵃᵐᵉ). </p>
-    
-  <p align="center">𝗜 𝗟𝗢𝗩𝗘 𝘁𝗵𝗲 𝗰𝗼𝗹𝗼𝗿 𝗽𝘂𝗿𝗽𝗹𝗲, 𝗜 𝗹𝗼𝘃𝗲 𝘁𝗵𝗲 𝗰𝗼𝗹𝗼𝗿 𝘀𝗼 𝗺𝘂𝗰𝗵. 𝗠𝘆 𝘄𝗵𝗼𝗹𝗲 𝗱𝗶𝘀𝗰𝗼𝗿𝗱 𝗽𝗿𝗼𝗳𝗶𝗹𝗲 𝗶𝘀 𝗽𝘂𝗿𝗽𝗹𝗲 &lt;3</p>
+  <p align="center">I am happily married to Ultron. [ Non-sharing ] </p>
 
 ![Avatar](https://cdn.discordapp.com/attachments/1511162321982984355/1548489767665012826/4227966A-758A-4A91-B871-F39A504D5A29.png?ex=6aa73efa&is=6aa5ed7a&hm=ea2b09734fa2bc29f8ca6222a48530c0a520da1c47cb8868d701c75f160f8a89&)
   
@@ -78,9 +75,9 @@
   <p align="center">
     INT: If you like any of the following media: Five Nights at Freddy's, Squid Game, Marvel Comics, MCU movies, Marvel Rivals, Fortnite, Minecraft, ROBLOX, Sonic The Hedgehog, Poppy Playtime. Friendly folks, non problematic people, Ultron fans, FNAF security breach fans. Ships with characters I am using that are not problematic are no problem to me! Roleplayers, I don't mind as long as you're not being weird. <br>
     
-  DNI: If you're 13 or under (being a weirdo). Problematic people, Skin copiers, trvmp supporters, racists, p3dophiles, homophobes, ex friends, Ultron haters or haters of any of my yumes. Problematic or disgusting ships! <br>
+  DNI: If you're 13 or under. Problematic people, Rude people who just ignore for no reason, Skin copiers, trvmp supporters, racists, p3dophiles, homophobes, ex friends, Ultron haters or haters of any of my yumes. Problematic or disgusting ships! <br>
   
-  BYI: I am an ADULT! If you're uncomfortable with speaking to people age 18 or over, please avoid me! 
+  BYI: I am an ADULT! If you're uncomfortable with speaking to people age 18 or over, please avoid me.
 
   I am usually sat in the MARVEL or STH area's, or wherever friends would like me to be! I am usually using skins of: Ultron, Hades, Sonic, Shadow the Hedgehog, Mr. Shadow / Shadow E.X.E, Nam-gyu, Montgomery Gator, etc.
   
