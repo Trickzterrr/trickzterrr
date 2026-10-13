@@ -29,10 +29,7 @@
     
 ![Avatar](https://cdn.discordapp.com/attachments/1293182484384579647/1538991173472092160/pony-town-_ULTRON-15__MARVEL-dance-lie-blinking-padded-4x_1.gif?ex=6a84b0b8&is=6a835f38&hm=85ec69506eb0e3e6d6c98f8389391ad3318a52e0af2cd68cc589e729e3ee489c&)
 
-  <p align="center">
-    <a href="https://www.tiktok.com/@trickzterrr">TikTok page</a> 　　
-    <a href="https://en.pronouns.page/@Trickzterrr">Pronouns Page</a> 　　
-    <a href="https://trickzterrrr.straw.page">Strawpage</a> 
+
   </p>
 
   <p align="center">
@@ -48,12 +45,15 @@
 
 <!-- SECOND DROPDOWN: ABOUT ME -->
 <details>
-  <summary><b>　　　　　　　　　　　　　　　　　　　<p align="center">⬇️ About me ⬇️</p></b></summary>
+  <summary><b>　　　　　　　　　　　　　　　　　　　<p align="center">⬇️ Get to know about me ⬇️</p></b></summary>
   <br>
-  <p align="center">𝗛𝗶, 𝗜'𝗺 𝗧𝗿𝗶𝗰𝗸𝘀𝘁𝗲𝗿. 𝗜 𝗼𝗳𝘁𝗲𝗻 𝗴𝗼 𝗯𝘆 '𝗧𝗿𝗶𝗰𝗸' 𝗳𝗼𝗿 𝘀𝗵𝗼𝗿𝘁 - 𝗜 𝗱𝗼𝗻'𝘁 𝗺𝗶𝗻𝗱 𝗧𝗿𝗶𝗰𝗸𝘆 𝗲𝗶𝘁𝗵𝗲𝗿!</p>
-  <p align="center">𝗜'𝗺 𝟭𝟵! 𝗕𝗮𝗿𝗲 𝘁𝗵𝗮𝘁 𝗶𝗻 𝗺𝗶𝗻𝗱 𝗯𝗲𝗳𝗼𝗿𝗲 𝘁𝗿𝘆𝗶𝗻𝗴 𝘁𝗼 𝗶𝗻𝘁𝗲𝗿𝗮𝗰𝘁 𝘄𝗶𝘁𝗵 𝗺𝗲. 𝗦𝗵𝗲/𝗛𝗲 - </p>
-
-  <p align="center">I am happily married to Ultron. [ Non-sharing ] </p>
+  <p align="center">Hi! My name's Trickster, but I most usually go by "Trick" for short.</p>
+  
+  <p align="center">I'm 19 years old, please bare that in mind when you're talking to me. I'm happily married to Ultron. I'm a huge fan of the new.. Ultron x Gorr companionship 👀 going around the Marvel Rivals community at the moment.. Perhaps I ship it, who cares huh.. 
+    I'm a digital artist with a creative mind, I create OC's based from different unique fandoms and make detailed backstories for them. I love my friends and I'll do everything for them, and always protect them no matter what - If I am sitting alone, please feel free to c+h!! Whisper to interact please, im very anti social. I will always whisper crowns to people who are using skins of media that I love! I will also follow on Github if they have one. </p>
+ <p align="center">    However. Lately I've came across some not so friendly folks that have had the same interest as me, and I try to interact with only to be ignored or vaguely responded to without given reason. Due to this, I may not always try to whisper to random people in the area I am sat anymore due to insecurity from these people. I always try to read people's githubs before I interact with them so that I dont cross any boundaries, and I am deeply sorry If I cross any boundary I may have missed.
+    
+   <p align="center">I will always ask for permission to friend you or sit next to you! I do not mind if you sit next to me, C+H is always allowed! <3 </p>
 
 ![Avatar](https://cdn.discordapp.com/attachments/1511162321982984355/1548489767665012826/4227966A-758A-4A91-B871-F39A504D5A29.png?ex=6aa73efa&is=6aa5ed7a&hm=ea2b09734fa2bc29f8ca6222a48530c0a520da1c47cb8868d701c75f160f8a89&)
   
@@ -80,7 +80,6 @@
 
   I am usually sat in the MARVEL or STH area's, or wherever friends would like me to be! I am usually using skins of: Ultron, Hades, Sonic, Shadow the Hedgehog, Mr. Shadow / Shadow E.X.E, Nam-gyu, Montgomery Gator, etc.
   
-If I am sitting alone, please feel free to c+h!! Whisper to interact please, im very anti social and may not respond out in the open. Yes I will always randomly whisper crowns to people who are using skins of media that I love! I will also follow on Github if they have one. I will always ask for permission to friend you or sit next to you! I do not mind if you sit next to me, C+H is always allowed! <3
 
 ![Avatar](https://cdn.discordapp.com/attachments/1511162321982984355/1538645786206675044/D57E9CCD-9704-4EE8-A9EB-A8B4D9169538.png?ex=6a9146ce&is=6a8ff54e&hm=813b7367eb57506d4eb8a283dec974a90c320a15b5f6d6219b137a4a9e2e7678&)
   
