@@ -12,7 +12,7 @@
 </p> 
 
 <p align="center">
-&emsp; &emsp; &emsp; ‘ <i> 　<a href="https://ultron15.atabook.org/">sign my ata !!</a>　◝   ,</i> 
+&emsp; &emsp; &emsp; ‘ <i> 　<a href="https://ultron15.atabook.org/">sign my atabook here </a>　◝   ,</i> 
 </p>
 
 <p align="center">
