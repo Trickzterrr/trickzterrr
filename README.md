@@ -8,7 +8,7 @@
 
 
 <p align="center">
-&emsp; &emsp; &emsp; ‘ <i> <a href="YOUR_RENTRY_URL">rentry</a>　  <a href="https://pronouns.cc/@Ultron">pronouns.cc</a> 　  <a href="https://www.tiktok.com/@trickzterrr">TikTok</a>　◝   ,</i> 
+&emsp; &emsp; &emsp; ‘ <i> <a href="https://rentry.co/ultronsbeloved">rentry</a>　  <a href="https://pronouns.cc/@Ultron">pronouns.cc</a> 　  <a href="https://www.tiktok.com/@trickzterrr">TikTok</a>　◝   ,</i> 
 </p> 
 
 <p align="center">
