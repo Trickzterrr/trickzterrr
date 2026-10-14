@@ -6,9 +6,9 @@
   # &emsp; &emsp; &emsp; ‘ <i> 💥　  ' ɪᴛ’ꜱ ᴀ ᴛʜɪɴɢ ᴡɪᴛʜ ᴍᴇ. ꜱᴛᴀʀᴋ ɪꜱ— ʜᴇ’ꜱ ᴀ ꜱɪᴄᴋɴᴇꜱꜱ! ' 　◝   ,</i> 
 </p>
 
-<p align="center"> !! some of these links are a WIP !! 
+
 <p align="center">
-&emsp; &emsp; &emsp; ‘ <i> 　   <a href="YOUR_RENTRY_URL">rentry</a> 　  <a href="YOUR_RENTRY_URL">atabook</a>　  <a href="https://pronouns.cc/@Ultron">pronouns.cc</a> 　  <a href="https://www.tiktok.com/@trickzterrr">TikTok</a>　◝   ,</i> 
+&emsp; &emsp; &emsp; ‘ <i> 　   <a href="YOUR_RENTRY_URL">rentry</a>　  <a href="https://pronouns.cc/@Ultron">pronouns.cc</a> 　  <a href="https://www.tiktok.com/@trickzterrr">TikTok</a>　◝   ,</i> 
 </p>
 
 <p align="center">
