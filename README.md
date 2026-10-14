@@ -8,7 +8,7 @@
 
 <p align="center"> !! some of these links are a WIP !! 
 <p align="center">
-&emsp; &emsp; &emsp; ‘ <i> 　   <a href="YOUR_RENTRY_URL">rentry</a> 　  <a href="YOUR_RENTRY_URL">atabook</a>　  <a href="https://pronouns.cc/@Ultron">pronouns.cc</a>　◝   ,</i> 
+&emsp; &emsp; &emsp; ‘ <i> 　   <a href="YOUR_RENTRY_URL">rentry</a> 　  <a href="YOUR_RENTRY_URL">atabook</a>　  <a href="https://pronouns.cc/@Ultron">pronouns.cc</a>　◝   </i> 
 &emsp; &emsp; &emsp; ‘ <i> 　  <a href="YOUR_RENTRY_URL">pronouns page</a>　  <a href="https://www.tiktok.com/@trickzterrr">TikTok</a>　◝   ,</i> 
 </p>
 
