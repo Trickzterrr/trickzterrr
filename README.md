@@ -55,6 +55,8 @@ please whisper 2 int , i’m pretty anti social and struggle to talk to new peop
  <br><br><br>
  diagnosed with autism + adhd + i have a lot of other mental and physical problems that i would rather keep PRIVATE . i make the occasional insensitive jokes and humour !! i do interpret "kys" jokes and some dark humour , however i only do this toward my close friends who are comfortable and i strongly advise that you dont take anything i say seriously !! 💔 overall i am generally a friendly person !! 😃
  <br><br><br>
+ i have a deep love and obsession for the colour purple , it will be on literally everything . discord theme , github design , tinted on my pony town skins , etc etc . 
+ <br><br><br>
 there will be occasions where i am offline on pony town for days or even a week or two and this tends to happen if i'm extremely burnt out from college - i WILL come back , i promise you . however to be safe , add me on discord to have easier contact with me !! @trickzterrr
  <br><br><br>
 i'm a marvel , squid game , five nights at freddy’s , star wars , poppy playtime , and sonic the hedgehog lover & enthusiast !! and I love to play Fortnite and Marvel Rivals with friends , occasionally minecraft by myself or with my college friends .
