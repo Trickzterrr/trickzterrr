@@ -33,7 +33,7 @@
 
 <!-- SECOND DROPDOWN: ABOUT ME -->
 <details>
-  <summary><b>　　　　　　　　　　　　　　　　　　　<p align="center">⬇️ about me ⬇️</p></b></summary>
+  <summary><b> ⬇️ about me ⬇️</p></b></summary>
   <br>
   <p align="center">Hi! My name's Trickster, but I most usually go by "Trick" for short.</p>
   
@@ -55,7 +55,6 @@
 
   <div align="center">
 
-![Banner](https://cdn.discordapp.com/attachments/1511162321982984355/1538645944906555524/ADBB2B31-AE95-47C2-95EC-DF50CA10B488.png?ex=6a836f33&is=6a821db3&hm=989763a12cb4dcec80005c1cd6758d6ce8097f610f2ce6c77d97e92c33cb7e0a&)
 
 </div>
 
