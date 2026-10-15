@@ -1,4 +1,4 @@
-[ still actively working on this page !! ]
+[ still actively working on this page and trying to figure out how it works </3 . stuff may look weird rn ]
  
  <p align="center">
 
