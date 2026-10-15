@@ -1,8 +1,5 @@
 <p align="center">[ this is still a WIP !! ]
- 
- <p align="center">
-  <br><br><br>
-   　  
+  <br><br><br> 
 <p align="center">
 &emsp; &emsp; &emsp; ‘ <i> <a href="https://rentry.co/ultronsbeloved">rentry</a>　  <a href="https://pronouns.cc/@Ultron">pronouns.cc</a> 　  <a href="https://www.tiktok.com/@trickzterrr">TikTok</a>　◝   ,</i> 
 </p> 
