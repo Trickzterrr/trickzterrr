@@ -35,16 +35,16 @@
   <br>
   <br><br><br>
 <b>hey !!
-call me trick , trickster , or ultron 
-female , he + she pronouns . 9teen .. born  may 2007 
+  <br><br><br>
+call me trick , trickster , or ultron . female , he + she pronouns  i'm 9teen  born  may 2007 
 i’m british , and yes i love tea . 
 happily taken to my boyfriend , @ invisibly , 15/10/24 💜
  <br><br><br>
 <b>c + h freely !! feel free to come up to me
 i’m usually off tab making skins or playing games
-there is a higher chance 2 be able to catch my attention if i’m sitting with my friends !!</b>
+, there is a higher chance 2 be able to catch my attention if i’m sitting with my friends !!</b>
  <br><br><br>
-please whisper 2 int , i’m pretty anti social and struggle to talk to new people in public .. i will always check my whispers and respond asap . i often whisper crowns to people !! much love <3
+please whisper 2 int , i’m pretty anti social and struggle to talk to new people in public .. i will always check my whispers and respond asap . i often whisper crowns to people !! much love <3 this also means that i will not approach anybody first , which is my own problem and why i struggle to make friends .
  <br><br><br>
 marvel , five nights at freddy’s , star wars , poppy playtime , and sonic the hedgehog lover & enthusiast !! I love to play Fortnite and Marvel Rivals with friends , occasionally minecraft by myself or with my college friends
  <br><br><br>
