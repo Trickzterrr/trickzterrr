@@ -5,7 +5,7 @@
 </p> 
 
 <p align="center">
-&emsp; &emsp; &emsp; ‘ <i><a href="https://ultron15.atabook.org/">sign my atabook here </a>　◝   ,</i> 
+&emsp; &emsp; &emsp; ‘ <i><a href="https://ultron15.atabook.org/">sign my atabook </a>　◝   ,</i> 
 </p>
   <br><br>
 <p align="center"> 🌙: available  　 ⛔: offtab 
