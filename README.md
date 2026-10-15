@@ -2,13 +2,11 @@
   # &emsp; &emsp; &emsp; ‘ <i> 💥　  ' ɪᴛ’ꜱ ᴀ ᴛʜɪɴɢ ᴡɪᴛʜ ᴍᴇ. ꜱᴛᴀʀᴋ ɪꜱ— ʜᴇ’ꜱ ᴀ ꜱɪᴄᴋɴᴇꜱꜱ! ' 　◝   ,</i> 
 </p>
 
-
    　  
 <p align="center">
 &emsp; &emsp; &emsp; ‘ <i> <a href="https://rentry.co/ultronsbeloved">rentry</a>　  <a href="https://pronouns.cc/@Ultron">pronouns.cc</a> 　  <a href="https://www.tiktok.com/@trickzterrr">TikTok</a>　◝   ,</i> 
 </p> 
 
-   　  
 <p align="center">
 &emsp; &emsp; &emsp; ‘ <i> 　<a href="https://ultron15.atabook.org/">sign my atabook here </a>　◝   ,</i> 
 </p>
