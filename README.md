@@ -54,7 +54,7 @@ i'm a marvel , squid game , five nights at freddy’s , star wars , poppy playti
 i’m an ultron yume , a heavily enthusiastic multishipper , and i believe i am ultron / nonhuman !!
 i’m cautious on interacting with doubles of my yumes or irl’s and may come across as blank or dismissive sometimes .. but i am not totally against chatting with anybody !! (unless you’re not a very nice person ….)
 <br><br><br>
-i ship a lot of characters , particularly with ultron .. and if you cannot tell, i adore my special life hating robot with all of my heart
+i ship a lot of characters , particularly with ultron .. and if you cannot tell, i adore my special life hating robot
 <br><br><br>
 my favourite ships :
 ultron x me , gorr x me , gorrtron (ultron x gorr the god butcher) , ultron x hela (my boyfriend and i’s shared favourite) , thangyu (nam-gyu x thanos) , sonamy (sonic x amy) , ultron x emma frost. I’m not particularly bothered about interacting with other ships as long as they’re not proship/darkship , or generally weird and wrong !!
