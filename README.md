@@ -44,7 +44,7 @@ call me trick , trickster , or ultron . female , he + she pronouns  i'm 9teen  b
 i’m british , and yes i love tea . 
 i'm happily taken to my boyfriend , @ invisibly , 15/10/24 💜 and happily married to ultron !
  <br><br><br>
-<b>c + h heavily encouraged !! usually sitting by myself or with @RQGUE or @superztar .
+<b>c + h heavily encouraged !! usually sitting by myself or with <a href="https://github.com/RQGUE">@RQGUE</a> or <a href="https://github.com/superztar">@superztar</a> .
 i’m usually off tab making skins or playing games
 , there is a higher chance 2 be able to catch my attention if i’m sitting with my friends !!
 please whisper 2 int , i’m pretty anti social and struggle to talk to new people in public .. i will always check my whispers and respond asap . i often whisper crowns to people !! much love <3 this also means that i will not approach anybody first , which is my own problem and why i struggle to make friends .
