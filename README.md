@@ -7,10 +7,12 @@
 </p>
 
 
+   　  
 <p align="center">
 &emsp; &emsp; &emsp; ‘ <i> <a href="https://rentry.co/ultronsbeloved">rentry</a>　  <a href="https://pronouns.cc/@Ultron">pronouns.cc</a> 　  <a href="https://www.tiktok.com/@trickzterrr">TikTok</a>　◝   ,</i> 
 </p> 
 
+   　  
 <p align="center">
 &emsp; &emsp; &emsp; ‘ <i> 　<a href="https://ultron15.atabook.org/">sign my atabook here </a>　◝   ,</i> 
 </p>
@@ -18,7 +20,10 @@
 <p align="center">
 
 <p align="center">
-  
+
+
+　  
+     
 ![Avatar](https://github.com/user-attachments/assets/ee628553-f3d6-443e-a296-5e2a10594b40)
 
 
