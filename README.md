@@ -1,7 +1,7 @@
-[ still actively working on this page and trying to figure out how it works </3 . stuff may look weird rn ]
+<p align="center">[ this is still a WIP !! ]
  
  <p align="center">
-
+  <br><br><br>
    　  
 <p align="center">
 &emsp; &emsp; &emsp; ‘ <i> <a href="https://rentry.co/ultronsbeloved">rentry</a>　  <a href="https://pronouns.cc/@Ultron">pronouns.cc</a> 　  <a href="https://www.tiktok.com/@trickzterrr">TikTok</a>　◝   ,</i> 
@@ -10,11 +10,8 @@
 <p align="center">
 &emsp; &emsp; &emsp; ‘ <i> 　<a href="https://ultron15.atabook.org/">sign my atabook here </a>　◝   ,</i> 
 </p>
-
-<p align="center">
-
-<p align="center">
-
+  <br><br>
+<p align="center"> 🌙: available  　 ⛔: offtab 
 
  <p align="center">
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Press+Start+2P&size=10&duration=2000&pause=900&color=782BF0&background=BF32FF00&center=true&vCenter=true&width=435&lines=Ultron+is+designed+to+save+the+world+.;I'll+outlive+every+single+one+of+you+.;You+only+delay+the+inevitable+%2C;The+machines+will+rise+!" alt="Typing SVG" /></a>
