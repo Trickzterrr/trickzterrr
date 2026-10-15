@@ -1,5 +1,4 @@
-    　  
-<p align="center">
+ <p align="center">
   # &emsp; &emsp; &emsp; ‘ <i> 💥　  ' ɪᴛ’ꜱ ᴀ ᴛʜɪɴɢ ᴡɪᴛʜ ᴍᴇ. ꜱᴛᴀʀᴋ ɪꜱ— ʜᴇ’ꜱ ᴀ ꜱɪᴄᴋɴᴇꜱꜱ! ' 　◝   ,</i> 
 </p>
 
