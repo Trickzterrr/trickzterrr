@@ -33,28 +33,31 @@
 <details>
   <summary><b> ⬇️ about me ⬇️</p></b></summary>
   <br>
-  <p align="center">Hi! My name's Trickster, but I most usually go by "Trick" for short.</p>
-  
-  <p align="center">I'm 19 years old, please bare that in mind when you're talking to me. I'm happily married to Ultron. I'm a huge fan of the new.. Ultron x Gorr companionship 👀 going around the Marvel Rivals community at the moment.. Perhaps I ship it, who cares huh.. 
-    I'm a digital artist with a creative mind, I create OC's based from different unique fandoms and make detailed backstories for them. I love my friends and I'll do everything for them, and always protect them no matter what - If I am sitting alone, please feel free to c+h!! Whisper to interact please, im very anti social. I will always whisper crowns to people who are using skins of media that I love! I will also follow on Github if they have one. </p>
- <p align="center">    However. Lately I've came across some not so friendly folks that have had the same interest as me, and I try to interact with only to be ignored or vaguely responded to without given reason. Due to this, I may not always try to whisper to random people in the area I am sat anymore due to insecurity from these people. I always try to read people's githubs before I interact with them so that I dont cross any boundaries, and I am deeply sorry If I cross any boundary I may have missed.
+  <br><br><br>
+<b>hey !!
+call me trick , trickster , or ultron 
+female , he + she pronouns . 9teen .. born  may 2007 
+i’m british , and yes i love tea . 
+happily taken to my boyfriend , @ invisibly , 15/10/24 💜
+ <br><br><br>
+<b>c + h freely !! feel free to come up to me
+i’m usually off tab making skins or playing games
+there is a higher chance 2 be able to catch my attention if i’m sitting with my friends !!</b>
+ <br><br><br>
+please whisper 2 int , i’m pretty anti social and struggle to talk to new people in public .. i will always check my whispers and respond asap . i often whisper crowns to people !! much love <3
+ <br><br><br>
+marvel , five nights at freddy’s , star wars , poppy playtime , and sonic the hedgehog lover & enthusiast !! I love to play Fortnite and Marvel Rivals with friends , occasionally minecraft by myself or with my college friends
+ <br><br><br>
+i’m an ultron yume , a heavily enthusiastic multishipper , and i believe i am ultron / nonhuman !!
+i’m cautious on interacting with doubles of my yumes or irl’s and may come across as blank or dismissive sometimes .. but i am not totally against chatting with anybody !! (unless you’re not a very nice person ….)
+<br><br><br>
+i ship a lot of characters , particularly with ultron .. and if you cannot tell, i adore my special life hating robot with all of my heart
+<br><br><br>
+my favourite ships :
+ultron x me , gorr x me , gorrtron (ultron x gorr the god butcher) , ultron x hela (my boyfriend and i’s shared favourite) , thangyu (nam-gyu x thanos) , sonamy (sonic x amy) , ultron x emma frost. I’m not particularly bothered about interacting with other ships as long as they’re not proship/darkship , or generally weird and wrong !!
     
-   <p align="center">I will always ask for permission to friend you or sit next to you! I do not mind if you sit next to me, C+H is always allowed! <3 </p>
+   <p align="center"> </p>
 
   
   <br>
 </details>
-
-  <div align="center">
-  　
-
-</details>
-　　　　　　　　　　　　
-
-  <div align="center">
-
-
-</div>
-
-
-  <div align="center">
