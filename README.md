@@ -61,7 +61,7 @@ there will be occasions where i am offline on pony town for days or even a week 
  <br><br><br>
 i'm a marvel , squid game , five nights at freddy’s , star wars , poppy playtime , and sonic the hedgehog lover & enthusiast !! and I love to play Fortnite and Marvel Rivals with friends , occasionally minecraft by myself or with my college friends .
  <br><br><br>
-i’m an ultron yumeshipper , a heavily enthusiastic multishipper , and i believe i am ultron / nonhuman !!
+i’m an ultron & Gorr the God Butcher yumeshipper , a heavily enthusiastic multishipper , and i believe i am ultron / nonhuman !!
 if you are a double , please interact with caution . i may come across as blank or dismissive sometimes .. this is nothing against you !! i am not totally against chatting with anybody .. i just have to be cautious at first . (unless you’re not a very nice person …)
 <br><br><br>
 i ship a lot of characters , particularly with ultron .. and if you cannot tell, i adore my special life hating robot
