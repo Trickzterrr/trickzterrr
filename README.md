@@ -92,7 +92,7 @@ i'm an ultron , gorr the god butcher , and jeff the land shark main !! i mostly 
     <br><br><br>
     
     
-  i do NOT care about the superiority of my rank and i'm not big on playing competitive . it's just a game , however i queue it from time to time . i mostly queue in quick play for the fun and vibes ! i do not like to play competitive game modes like marvel rivals and fortnite by myself , and that is one of the main reasons that i rarely queue for comp .. i'm based in PC servers so i'm happy to queue ranked with anybody in those servers .
+  i do NOT care about the superiority of my rank and i'm not big on playing competitive . it's just a game , i've peaked plat 3 and im proud !! 😳 however i queue it from time to time . i mostly queue in quick play for the fun and vibes ! i do not like to play competitive game modes like marvel rivals and fortnite by myself , and that is one of the main reasons that i rarely queue for comp .. i'm based in PC servers so i'm happy to queue ranked with anybody in those servers .
     <br><br><br>
 all of my lorded characters so far . i am actively working to get tank lords !! emma frost and devil dinosaur are my first choices for tank lords !! they will appear when i have completed it .
     <br><br><br>
