@@ -5,7 +5,7 @@
 </p> 
 
 <p align="center">
-&emsp; &emsp; &emsp; ‘ <i><a href="https://ultron15.atabook.org/">sign my atabook </a>　◝   ,</i> 
+&emsp; &emsp; &emsp; ‘ <i><a href="https://ultron15.atabook.org/">sign ata here </a>　◝   ,</i> 
 </p>
   <br><br>
 <p align="center"> 🌙: available  　 ⛔: offtab / afk  　 
@@ -48,7 +48,7 @@ please whisper 2 int , i’m pretty anti social and struggle to talk to new peop
  <br><br><br>
  BYI : i can be a bit of a sensitive asshole sometimes , if i feel like you are being rude, hating, or ignoring me i will distance myself for a while until i feel like you're okay to talk to again . usually things like this will happened when i am fatigued, overwhelmed, or stressed in the moment , otherwise i usually try to ignore it . sometimes i take things literally , and sometimes those things can upset me but my close friends are already fully aware of this and help me with whatever i need whenever i get agitated or overwhelmed . just interact w caution pls :) i do not associate myself with ex friendships unless we have fully made up !! if i am talking to somebody who is problematic, please let me know , i try my best to avoid trouble causers 
  <br><br><br>
- diagnosed with autism + adhd + i have a lot of other mental and physical problems that i would rather keep PRIVATE . i make the occasional insensitive jokes and humour !! i do interpret "kys" jokes and some dark humour , however i only do this toward my close friends who are comfortable and i strongly advise that you dont take anything i say seriously !! 💔 overall i am generally a friendly person !! 😃
+ diagnosed with autism + adhd + i have a lot of other mental and physical problems that i would rather keep private since its a long complicated list .. i make the occasional insensitive jokes and humour !! i do interpret "kys" jokes and some dark humour but i only do this toward my close friends who are comfortable and i strongly advise that you dont take anything i say seriously !! 💔 overall i am generally a friendly person !! 😃
  <br><br><br>
  i have a deep love and obsession for the colour purple , it will be on literally everything . discord theme , github design , tinted on my pony town skins , etc etc . 
  <br><br><br>
