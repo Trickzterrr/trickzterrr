@@ -48,7 +48,7 @@ please whisper 2 int , i’m pretty anti social and struggle to talk to new peop
  <br><br><br>
  BYI : i can be a bit of a sensitive asshole sometimes , if i feel like you are being rude, hating, or ignoring me i will distance myself for a while until i feel like you're okay to talk to again . usually things like this will happened when i am fatigued, overwhelmed, or stressed in the moment , otherwise i usually try to ignore it . sometimes i take things literally , and sometimes those things can upset me but my close friends are already fully aware of this and help me with whatever i need whenever i get agitated or overwhelmed . just interact w caution pls :) i do not associate myself with ex friendships unless we have fully made up !! if i am talking to somebody who is problematic, please let me know , i try my best to avoid trouble causers 
  <br><br><br>
- diagnosed with autism + adhd + i have a lot of other mental and physical problems that i would rather keep private since its a long complicated list .. i make the occasional insensitive jokes and humour !! i do interpret "kys" jokes and some dark humour but i only do this toward my close friends who are comfortable and i strongly advise that you dont take anything i say seriously !! 💔 overall i am generally a friendly person !! 😃
+ diagnosed autism + adhd . other mental and physical problems i would like to keep confidential . i make the occasional insensitive jokes and humour !! i do interpret "kys" jokes and some dark humour but i only do this toward my close friends who are comfortable and i strongly advise that you dont take anything i say seriously !! 💔 overall i am generally a friendly person !! 😃
  <br><br><br>
  i have a deep love and obsession for the colour purple , it will be on literally everything . discord theme , github design , tinted on my pony town skins , etc etc . 
  <br><br><br>
@@ -59,7 +59,7 @@ i'm a marvel , squid game , five nights at freddy’s , star wars , poppy playti
 i’m an ultron & Gorr the God Butcher yumeshipper , and a heavily enthusiastic multishipper
 if you are a double , please interact with caution . i may come across as blank or dismissive sometimes .. this is nothing against you !! i am not totally against chatting with anybody .. i just have to be cautious at first . (unless you’re not a very nice person …)
 <br><br><br>
-i ship a lot of characters , particularly with ultron .. and if you cannot tell, i adore my special life hating robot
+i ship a lot of characters , particularly with ultron .. and if you cannot tell, i adore my special life hating robot .
 <br><br><br>
 my favourite ships :
 ultron x me , gorr x me , ultron x gorr the god butcher , ultron x hela (my boyfriend and i’s shared favourite) , nam-gyu x thanos , ultron x wanda / scarlet witch , sonic the hedgehog x amy rose  , ultron x emma frost. I’m not particularly bothered about interacting with other ships as long as they’re not proship/darkship , or generally weird and wrong !!
