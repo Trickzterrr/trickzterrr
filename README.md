@@ -8,7 +8,7 @@
 &emsp; &emsp; &emsp; ‘ <i><a href="https://ultron15.atabook.org/">sign my atabook </a>　◝   ,</i> 
 </p>
   <br><br>
-<p align="center"> 🌙: available  　 ⛔: offtab 
+<p align="center"> 🌙: available  　 ⛔: offtab / afk  　 
 
  <p align="center">
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Press+Start+2P&size=10&duration=2000&pause=900&color=782BF0&background=BF32FF00&center=true&vCenter=true&width=435&lines=Ultron+is+designed+to+save+the+world+.;I'll+outlive+every+single+one+of+you+.;You+only+delay+the+inevitable+%2C;The+machines+will+rise+!" alt="Typing SVG" /></a>
@@ -92,7 +92,7 @@ i'm an ultron , gorr the god butcher , and jeff the land shark main !! i mostly 
     <br><br><br>
     
     
-  i do NOT care about the superiority of my rank and i'm not big on playing competitive . it's just a game , i've peaked plat 3 and im proud !! 😳 however i queue it from time to time . i mostly queue in quick play for the fun and vibes ! i do not like to play competitive game modes like marvel rivals and fortnite by myself , and that is one of the main reasons that i rarely queue for comp .. i'm based in PC servers so i'm happy to queue ranked with anybody in those servers .
+  i do NOT care about playing competitive . it's just a game , i've peaked plat 3 and im proud !! 😳 however i queue it from time to time . i mostly queue in quick play for the fun and vibes ! i do not like to play competitive game modes like marvel rivals and fortnite by myself , and that is one of the main reasons that i rarely queue for comp .. i'm based in PC servers so i'm happy to queue ranked with anybody in those servers .
     <br><br><br>
 all of my lorded characters so far . i am actively working to get tank lords !! emma frost and devil dinosaur are my first choices for tank lords !! they will appear when i have completed it .
     <br><br><br>
