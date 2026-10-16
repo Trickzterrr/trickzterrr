@@ -54,12 +54,12 @@ please whisper 2 int , i’m pretty anti social and struggle to talk to new peop
  <br><br><br>
 there will be occasions where i am offline on pony town for days or even a week or two and this tends to happen if i'm extremely burnt out from college - i WILL come back , i promise you . however to be safe , add me on discord to have easier contact with me !! @trickzterrr
  <br><br><br>
-i'm a marvel , squid game , five nights at freddy’s , star wars , poppy playtime , and sonic the hedgehog lover & enthusiast !! and I love to play Fortnite and Marvel Rivals with friends , occasionally minecraft by myself or with my college friends .
+i'm a marvel , squid game , five nights at freddy’s , star wars , poppy playtime , and sonic the hedgehog lover & enthusiast ! and I love to play Fortnite and Marvel Rivals with friends , occasionally minecraft by myself or with my college friends .
  <br><br><br>
-i’m an ultron & Gorr the God Butcher yumeshipper , and a heavily enthusiastic multishipper
-if you are a double , please interact with caution . i may come across as blank or dismissive sometimes .. this is nothing against you !! i am not totally against chatting with anybody .. i just have to be cautious at first . (unless you’re not a very nice person …)
+i’m an ultron & Gorr the God Butcher yumeshipper , and a heavily enthusiastic multishipper .
+if you are a double , please interact with caution . i may come across as blank or dismissive sometimes .. this is nothing against you !! i am not against chatting .. i just have to be cautious at first . (unless i KNOW that you’re not a very nice person …)
 <br><br><br>
-i ship a lot of characters , particularly with ultron .. and if you cannot tell, i adore my special life hating robot .
+i ship a lot of characters , particularly with ultron .. i adore my special life hating robot . most of my favourite ships are shared with my close friends !!
 <br><br><br>
 my favourite ships :
 ultron x me , gorr x me , ultron x gorr the god butcher , ultron x hela (my boyfriend and i’s shared favourite) , nam-gyu x thanos , ultron x wanda / scarlet witch , sonic the hedgehog x amy rose  , ultron x emma frost. I’m not particularly bothered about interacting with other ships as long as they’re not proship/darkship , or generally weird and wrong !!
