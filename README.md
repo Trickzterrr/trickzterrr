@@ -93,11 +93,12 @@ i'm an ultron , gorr the god butcher , and jeff the land shark main !! i mostly 
     
     
   i do NOT care about the superiority of my rank and i'm not big on playing competitive . it's just a game , however i queue it from time to time . i mostly queue in quick play for the fun and vibes ! i do not like to play competitive game modes like marvel rivals and fortnite by myself , and that is one of the main reasons that i rarely queue for comp .. i'm based in PC servers so i'm happy to queue ranked with anybody in those servers .
-
+    <br><br><br>
+all of my lorded characters so far . i am actively working to get tank lords !! emma frost and devil dinosaur are my first choices for tank lords !! they will appear when i have completed it .
+    <br><br><br>
   <p align="center"><img src="https://static.wikia.nocookie.net/marvel-rivals/images/6/60/Champion_Icon_Ultron_Animated.gif/revision/latest?cb=20260223021643" width="150"> <img src="https://static.wikia.nocookie.net/marvel-rivals/images/5/52/Champion_Icon_Jeff_the_Land_Shark_Animated.gif/revision/latest?cb=20260223013950" width="150"> <img src="https://static.wikia.nocookie.net/marvel-rivals/images/9/95/Lord_Icon_Gorr.png/revision/latest?cb=20260910033756" width="150">
   <br><br>
   <p align="center"><img src="https://static.wikia.nocookie.net/marvel-rivals/images/e/e4/Lord_Icon_Deadpool.png/revision/latest?cb=20260123053121" width="150"> <img src="https://static.wikia.nocookie.net/marvel-rivals/images/9/93/Lord_Icon_Hela.png/revision/latest?cb=20251101024409" width="150"> <img src="https://static.wikia.nocookie.net/marvel-rivals/images/e/eb/Lord_Icon_Moon_Knight.png/revision/latest?cb=20251101025105" width="150"> <img src="https://static.wikia.nocookie.net/marvel-rivals/images/4/45/Lord_Icon_Luna_Snow.png/revision/latest?cb=20251101024846" width="150">
     <br><br><br>
-all of my lorded characters so far . i am actively working to get tank lords !! emma frost and devil dinosaur are my first choices for tank lords !! they will appear when i have completed it .
     
    <p align="center"> </p>
