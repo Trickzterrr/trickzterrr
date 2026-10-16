@@ -70,3 +70,30 @@ ultron x me , gorr x me , gorrtron (ultron x gorr the god butcher) , ultron x he
    
   <br>
 </details>
+
+<!-- THIRD DROPDOWN: RIVALS -->
+<details>
+  <summary><b> ⬇️ marvel rivals ⬇️</p></b></summary>
+  <br>
+  <br><br><br>
+if i am offtab , one of the things i am most likely doing is playing marvel rivals .
+i am usually playing this game by myself / solo queueing , but sometimes my boyfriend + irl best friend queues with me as well .
+and i am more than happy to make more friends on this game to play with so i'm not always by myself !! <3
+ <br><br><br>
+<b>
+  <br><br><br>
+  <p align="center"><img src="https://i.postimg.cc/bwMBxLWV/Untitled725-20261016012827.png" width="435">
+    <br><br><br>
+
+<p align="center">user UID : 755465207
+
+i'm an ultron , gorr the god butcher , and jeff the land shark main !! i mostly play support . i can fill other roles if needed , but i can't promise my worth . 😓
+  <p align="center"><img src="https://i.postimg.cc/SN4VcRdd/Untitled726-20261016020044.png" width="435">
+    <br><br><br>
+    
+    
+  i do NOT care about the superiority of my rank and i'm not big on playing competitive . it's just a game , however i queue it from time to time . i mostly queue in quick play for the fun and vibes ! i do not like to play competitive game modes like marvel rivals and fortnite by myself , and that is one of the main reasons that i rarely queue for comp .. i'm based in PC servers so i'm happy to queue ranked with anybody in those servers .
+
+    
+    
+   <p align="center"> </p>
