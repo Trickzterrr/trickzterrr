@@ -34,7 +34,7 @@
   <summary><b> ⬇️ about me ⬇️</p></b></summary>
   <br>
   <br><br><br>
-<b>hey !!
+ <p align="center"><b>hey !!
   <br><br><br>
 call me trick , trickster , or ultron . female , he + she pronouns  i'm 9teen  born  may 2007 
 i’m british , and yes i love tea . 
