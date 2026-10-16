@@ -1,4 +1,4 @@
-<p align="center">[ this is still a WIP !! ]
+<p align="center">[ this is still a WIP !! subject to change .]
   <br><br><br> 
 <p align="center">
 &emsp; &emsp; &emsp; ‘ <i> <a href="https://rentry.co/ultronsbeloved">rentry</a>　  <a href="https://pronouns.cc/@Ultron">pronouns.cc</a> 　  <a href="https://www.tiktok.com/@trickzterrr">TikTok</a>　◝   ,</i> 
@@ -103,3 +103,5 @@ all of my lorded characters so far . i am actively working to get tank lords !! 
     <br><br><br>
     
    <p align="center"> </p>
+
+  <p align="center">—————————————————————————————————————————
