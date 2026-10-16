@@ -86,14 +86,14 @@ and i am more than happy to make more friends on this game to play with so i'm n
   <p align="center"><img src="https://i.postimg.cc/bwMBxLWV/Untitled725-20261016012827.png" width="435">
     <br><br><br>
 
-<p align="center">user UID : 755465207
+<p align="center">UID : 755465207
 
 i'm an ultron , gorr the god butcher , and jeff the land shark main !! i mostly play support . i can fill other roles if needed , but i can't promise my worth . 😓
   <p align="center"><img src="https://i.postimg.cc/SN4VcRdd/Untitled726-20261016020044.png" width="435">
     <br><br><br>
     
     
-  i do NOT care about playing competitive . it's just a game , i've peaked plat 3 and im proud !! 😳 however i queue it from time to time . i mostly queue in quick play for the fun and vibes ! i do not like to play competitive game modes like marvel rivals and fortnite by myself , and that is one of the main reasons that i rarely queue for comp .. i'm based in PC servers so i'm happy to queue ranked with anybody in those servers .
+  i dont really play competitive . i've peaked plat 3 and im proud 😳 i do queue it from time to time . i mostly queue in quick play for the fun and vibes since im usually solo ! i do not like to play competitive game modes like marvel rivals and fortnite by myself , and that is one of the main reasons that i rarely queue for comp .. i'm based in PC servers so i'm happy to queue ranked with anybody in those servers . i definitely need friends to play with .
     <br><br><br>
 all of my lorded characters so far . i am actively working to get tank lords !! emma frost and devil dinosaur are my first choices for tank lords !! they will appear when i have completed it .
     <br><br><br>
