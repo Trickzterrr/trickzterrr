@@ -1,4 +1,6 @@
 <br><br><br> 
+<p align="center"><sub>better viewed on PC !!</sub>
+<br><br><br> 
 <p align="center">
 &emsp; ‘ <i> <a href="https://rentry.co/ultronsbeloved">rentry</a>　  <a href="https://pronouns.cc/@Ultron">pronouns.cc</a> 　  <a href="https://www.tiktok.com/@trickzterrr">TikTok</a>　◝   ,</i> 
 </p> 
