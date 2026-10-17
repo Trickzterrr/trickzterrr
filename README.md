@@ -16,8 +16,6 @@
 
 <img width="568" height="320" alt="copy-6748E207-9377-493D-9C77-4A3C384F98EF" src="https://github.com/user-attachments/assets/7d8da254-5ad2-458f-a550-9a935af9798b" />
 
-![](https://komarev.com/ghpvc/?username=trickzterrr&color=purple&style=plastic&label=ULTRON+VIRUS)
-
 
 </p>
 
