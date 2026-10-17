@@ -38,7 +38,7 @@
  <p align="center"><b>hey !!
   <br><br><br>
 call me trick , trickster , or ultron . female , he + she pronouns  i'm 9teen  born  may 2007 
-i’m british , and yes i love tea . 
+i’m british , and yes i love to drink tea . 
 i'm happily taken to my boyfriend , @ invisibly , 15/10/24 💜 and happily married to ultron !💍
  <br><br><br>
 <b>c + h heavily encouraged !! usually sitting by myself or with <a href="https://github.com/RQGUE">@RQGUE</a> or <a href="https://github.com/superztar">@superztar</a> .
