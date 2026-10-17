@@ -77,7 +77,7 @@ ultron x me , gorr x me , ultron x gorr the god butcher , ultron x hela (my boyf
 
 <!-- THIRD DROPDOWN: RIVALS -->
 <details>
-  <summary><b> <p align="center">⬇️ marvel rivals info ⬇️</p></b></summary>
+  <summary><b> <p align="center">⬇️ marvel rivals ⬇️</p></b></summary>
   <br>
   <br><br><br>
 if i am offtab , one of the things i am most likely doing is playing marvel rivals .
