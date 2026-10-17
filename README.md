@@ -117,6 +117,6 @@ all of my lorded characters so far . i am actively working to get tank lords !! 
 
   <p align="center">—————————————————————————————————————————
 
-![Profile views](https://komarev.com/ghpvc/?trickzterrr&color=purple&style=plastic-square&label=Ultron+Virus)
+![](https://komarev.com/ghpvc/?username=trickzterrr&color=purple&style=plastic&label=ULTRON+VIRUS)
 
   ![Avatar](https://github.com/user-attachments/assets/ee628553-f3d6-443e-a296-5e2a10594b40)
