@@ -49,10 +49,12 @@ i’m usually off tab making skins or playing games
 , there is a higher chance 2 be able to catch my attention if i’m sitting with my friends !!
 please whisper 2 int , i’m pretty anti social and struggle to talk to new people in public .. i will always check my whispers and respond asap . i often whisper crowns to people !! much love <3 this also means that i will not approach anybody first , which is my own problem and why i struggle to make friends .
  <br><br><br>
+  basic DNI when interacting with me !! if you are under 16 i dont mind talking but i am not comfortable with being friends . i hope you understand ! <3
+<br><br><br>
  BYI : i can be a bit of a sensitive asshole sometimes , if i feel like you are being rude, hating, or ignoring me i will distance myself for a while until i feel like you're okay to talk to again . usually things like this will happened when i am fatigued, overwhelmed, or stressed in the moment , otherwise i usually try to ignore it . sometimes i take things literally , and sometimes those things can upset me but my close friends are already fully aware of this and help me with whatever i need whenever i get agitated or overwhelmed . just interact w caution pls :) i do not associate myself with ex friendships unless we have fully made up !! if i am talking to somebody who is problematic, please let me know , i try my best to avoid trouble causers 
  <br><br><br>
  diagnosed autism + adhd . other mental and physical problems i would like to keep confidential . i make the occasional insensitive jokes and humour !! i do interpret "kys" jokes and some dark humour but i only do this toward my close friends who are comfortable and i strongly advise that you dont take anything i say seriously !! 💔 overall i am generally a friendly person !! 😃
- <br><br><br>
+ <br><br><br> 
  i have a deep love and obsession for the colour purple , it will be on literally everything . discord theme , github design , tinted on my pony town skins , etc etc . 
  <br><br><br>
 there will be occasions where i am offline on pony town for days or even a week or two and this tends to happen if i'm extremely burnt out from college - i WILL come back , i promise you . however to be safe , add me on discord to have easier contact with me !! @trickzterrr
