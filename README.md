@@ -101,7 +101,7 @@ all of my lorded characters so far . i am actively working to get tank lords !! 
   <br><br>
   <p align="center"><img src="https://static.wikia.nocookie.net/marvel-rivals/images/e/e4/Lord_Icon_Deadpool.png/revision/latest?cb=20260123053121" width="150"> <img src="https://static.wikia.nocookie.net/marvel-rivals/images/9/93/Lord_Icon_Hela.png/revision/latest?cb=20251101024409" width="150"> <img src="https://static.wikia.nocookie.net/marvel-rivals/images/e/eb/Lord_Icon_Moon_Knight.png/revision/latest?cb=20251101025105" width="150"> <img src="https://static.wikia.nocookie.net/marvel-rivals/images/4/45/Lord_Icon_Luna_Snow.png/revision/latest?cb=20251101024846" width="150">
     <br><br><br>
-  <p align="center">- currently on a grind to lord Rocket !! -
+  <p align="center">- currently on a grind to lord Rocket & Adam Warlock !! -
     
    <p align="center"> </p>
 
