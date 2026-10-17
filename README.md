@@ -1,14 +1,14 @@
-<p align="center">[ this is still a WIP !! subject to change .]
+<p align="center"><sub>[ this is still a WIP !! subject to change .]</sub>
   <br><br><br> 
 <p align="center">
-&emsp; &emsp; &emsp; ‘ <i> <a href="https://rentry.co/ultronsbeloved">rentry</a>　  <a href="https://pronouns.cc/@Ultron">pronouns.cc</a> 　  <a href="https://www.tiktok.com/@trickzterrr">TikTok</a>　◝   ,</i> 
+&emsp; ‘ <i> <a href="https://rentry.co/ultronsbeloved">rentry</a>　  <a href="https://pronouns.cc/@Ultron">pronouns.cc</a> 　  <a href="https://www.tiktok.com/@trickzterrr">TikTok</a>　◝   ,</i> 
 </p> 
 
 <p align="center">
-&emsp; &emsp; &emsp; ‘ <i><a href="https://ultron15.atabook.org/">sign ata here </a>　◝   ,</i> 
+&emsp;‘ <i><a href="https://ultron15.atabook.org/">sign ata here </a>　◝   ,</i> 
 </p>
   <br><br>
-<p align="center"> 🌙: available  　 ⛔: offtab / afk  　 
+<p align="center"> <sub>🌙: available  　 ⛔: offtab / afk</sub>  　 
 
  <p align="center">
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Press+Start+2P&size=10&duration=2000&pause=900&color=782BF0&background=BF32FF00&center=true&vCenter=true&width=435&lines=Ultron+is+designed+to+save+the+world+.;I'll+outlive+every+single+one+of+you+.;You+only+delay+the+inevitable+%2C;The+machines+will+rise+!" alt="Typing SVG" /></a>
@@ -27,7 +27,7 @@
 
 <p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Press+Start+2P&size=15&duration=2000&pause=900&color=F09B58&background=BF32FF00&center=true&vCenter=true&width=435&lines=officially++pony+town's+ultron;%40+pt-hall-of-media" alt="Typing SVG" /></a>
   <br>
-  recognised by <a href="https://github.com/pt-hall-of-media">@pt-hall-of-media</a> as Pony Town's Ultron !
+<sub>recognised by <a href="https://github.com/pt-hall-of-media">@pt-hall-of-media</a> as Pony Town's Ultron !</sub>
  <br><br>
 <p align="center">—————————————————————————————————————————
 
@@ -40,7 +40,7 @@
   <br><br><br>
  <p align="center"><b>hey !!
   <br><br><br>
-call me trick , trickster , or ultron . female , he + she pronouns  i'm 9teen  born  may 2007 
+<sub>call me trick , trickster , or ultron . female , he + she pronouns  i'm 9teen  born  may 2007 
 i’m british , and yes i love to drink tea . 
 i'm happily taken to my boyfriend , @ invisibly , 15/10/24 💜 and happily married to ultron !💍
  <br><br><br>
@@ -65,7 +65,7 @@ if you are a double , please interact with caution . i may come across as blank 
 i ship a lot of characters , particularly with ultron .. i adore my special life hating robot . most of my favourite ships are shared with my close friends !!
 <br><br><br>
 my favourite ships :
-ultron x me , gorr x me , ultron x gorr the god butcher , ultron x hela (my boyfriend and i’s shared favourite) , nam-gyu x thanos , ultron x wanda / scarlet witch , sonic the hedgehog x amy rose  , ultron x emma frost. I’m not particularly bothered about interacting with other ships as long as they’re not proship/darkship , or generally weird and wrong !!
+ultron x me , gorr x me , ultron x gorr the god butcher , ultron x hela (my boyfriend and i’s shared favourite) , nam-gyu x thanos , ultron x wanda / scarlet witch , sonic the hedgehog x amy rose  , ultron x emma frost. I’m not particularly bothered about interacting with other ships as long as they’re not proship/darkship , or generally weird and wrong !!</sub>
     
    <p align="center"> </p>
 
@@ -80,9 +80,9 @@ ultron x me , gorr x me , ultron x gorr the god butcher , ultron x hela (my boyf
   <summary><b> <p align="center">⬇️ marvel rivals ⬇️</p></b></summary>
   <br>
   <br><br><br>
-if i am offtab , one of the things i am most likely doing is playing marvel rivals .
+<sub>if i am offtab , one of the things i am most likely doing is playing marvel rivals .
 i am usually playing this game by myself / solo queueing , but sometimes my boyfriend + irl best friend queues with me as well .
-and i am more than happy to make more friends on this game to play with so i'm not always by myself !! <3
+and i am more than happy to make more friends on this game to play with so i'm not always by myself !! <3</sub>
  <br><br><br>
   <p align="center">· · ────── ꒰ঌ·✦·໒꒱ ────── · ·
   <br><br><br>
@@ -92,19 +92,19 @@ and i am more than happy to make more friends on this game to play with so i'm n
         <br><br><br>
 <p align="center">UID : 755465207
 
-i'm an ultron , gorr the god butcher , and jeff the land shark main !! i mostly play support . i can fill other roles if needed , but i can't promise my worth . 😓
+<sub>i'm an ultron , gorr the god butcher , and jeff the land shark main !! i mostly play support . i can fill other roles if needed , but i can't promise my worth . </sub>
   <p align="center"><img src="https://i.postimg.cc/MpZcBSJs/7814EAE2-2B81-4AEB-B198-33DB970DEAE0.png" width="435">
     <br><br><br>
     
-  i dont really play competitive . i've peaked plat 3 and im proud 😳 i do queue it from time to time . i mostly queue in quick play for the fun and vibes since im usually solo ! i do not like to play competitive game modes like marvel rivals and fortnite by myself , and that is one of the main reasons that i rarely queue for comp .. i'm based in PC servers so i'm happy to queue ranked with anybody in those servers . i definitely need friends to play with .
+  <sub>i dont really play competitive . i've peaked plat 3 and im proud 😳 i do queue it from time to time . i mostly queue in quick play for the fun and vibes since im usually solo ! i do not like to play competitive game modes like marvel rivals and fortnite by myself , and that is one of the main reasons that i rarely queue for comp .. i'm based in PC servers so i'm happy to queue ranked with anybody in those servers . i definitely need friends to play with .
     <br><br><br>
-all of my lorded characters so far . i am actively working to get tank lords !! emma frost and devil dinosaur are my first choices for tank lords !! they will appear when i have completed it .
+all of my lorded characters so far . i am actively working to get tank lords !! emma frost and devil dinosaur are my first choices for tank lords !! they will appear when i have completed it .</sub>
     <br><br><br>
   <p align="center"><img src="https://static.wikia.nocookie.net/marvel-rivals/images/6/60/Champion_Icon_Ultron_Animated.gif/revision/latest?cb=20260223021643" width="150"> <img src="https://static.wikia.nocookie.net/marvel-rivals/images/5/52/Champion_Icon_Jeff_the_Land_Shark_Animated.gif/revision/latest?cb=20260223013950" width="150"> <img src="https://static.wikia.nocookie.net/marvel-rivals/images/9/95/Lord_Icon_Gorr.png/revision/latest?cb=20260910033756" width="150">
   <br><br>
   <p align="center"><img src="https://static.wikia.nocookie.net/marvel-rivals/images/e/e4/Lord_Icon_Deadpool.png/revision/latest?cb=20260123053121" width="150"> <img src="https://static.wikia.nocookie.net/marvel-rivals/images/9/93/Lord_Icon_Hela.png/revision/latest?cb=20251101024409" width="150"> <img src="https://static.wikia.nocookie.net/marvel-rivals/images/e/eb/Lord_Icon_Moon_Knight.png/revision/latest?cb=20251101025105" width="150"> <img src="https://static.wikia.nocookie.net/marvel-rivals/images/4/45/Lord_Icon_Luna_Snow.png/revision/latest?cb=20251101024846" width="150">
     <br><br><br>
-  <p align="center">- currently on a grind to lord Rocket & Adam Warlock !! -
+  <p align="center"><sub>- currently on a grind to lord Rocket & Adam Warlock !! -</sub>
     
    <p align="center"> </p>
 
