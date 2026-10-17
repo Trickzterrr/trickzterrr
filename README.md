@@ -32,7 +32,7 @@
 <!-- SECOND DROPDOWN: ABOUT ME -->
 
 <details>
-<summary><b> <p align="center">⬇️ get to know about me ⬇️</p></b></summary>
+<summary><b> <p align="center">⬇️ about me ⬇️</p></b></summary>
   <br>
   <br><br><br>
  <p align="center"><b>hey !!
