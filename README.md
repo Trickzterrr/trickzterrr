@@ -81,11 +81,12 @@ if i am offtab , one of the things i am most likely doing is playing marvel riva
 i am usually playing this game by myself / solo queueing , but sometimes my boyfriend + irl best friend queues with me as well .
 and i am more than happy to make more friends on this game to play with so i'm not always by myself !! <3
  <br><br><br>
-<b>
+  <p align="center">· · ────── ꒰ঌ·✦·໒꒱ ────── · ·
   <br><br><br>
   <p align="center"><img src="https://i.postimg.cc/bwMBxLWV/Untitled725-20261016012827.png" width="435">
     <br><br><br>
-
+  <p align="center">· · ────── ꒰ঌ·✦·໒꒱ ────── · ·
+        <br><br><br>
 <p align="center">UID : 755465207
 
 i'm an ultron , gorr the god butcher , and jeff the land shark main !! i mostly play support . i can fill other roles if needed , but i can't promise my worth . 😓
