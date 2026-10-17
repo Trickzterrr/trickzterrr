@@ -90,7 +90,7 @@ and i am more than happy to make more friends on this game to play with so i'm n
 <p align="center">UID : 755465207
 
 i'm an ultron , gorr the god butcher , and jeff the land shark main !! i mostly play support . i can fill other roles if needed , but i can't promise my worth . 😓
-  <p align="center"><img src="https://i.postimg.cc/SN4VcRdd/Untitled726-20261016020044.png" width="435">
+  <p align="center"><img src="https://i.postimg.cc/MpZcBSJs/7814EAE2-2B81-4AEB-B198-33DB970DEAE0.png" width="435">
     <br><br><br>
     
     
