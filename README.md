@@ -106,3 +106,8 @@ all of my lorded characters so far . i am actively working to get tank lords !! 
    <p align="center"> </p>
 
   <p align="center">—————————————————————————————————————————
+
+   <br>
+</details>
+
+  <p align="center">—————————————————————————————————————————
