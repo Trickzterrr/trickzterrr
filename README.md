@@ -45,9 +45,7 @@ i’m british , and yes i love to drink tea .
 i'm taken , @ invisibly , 15/10/24 💜 and very happily married to ultron !💍
  <br><br><br>
   I have an awesome and loving brother , Slappy , and amazing best friends . Dakota , Ult , Earth , Silver , and Nyx .
- <br><br><br>
-<p align="center">Ultron x Gorr the God Butcher truther <3
- <br><br><br>
+<br><br><br>
 <b>c + h heavily encouraged !! usually sitting by myself or with <a href="https://github.com/RQGUE">@RQGUE</a> or <a href="https://github.com/superztar">@superztar</a> .
 i’m usually off tab making skins or playing games
 , there is a higher chance 2 be able to catch my attention if i’m sitting with my friends !!
