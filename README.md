@@ -106,6 +106,8 @@ and i am more than happy to make more friends on this game to play with so i'm n
     <br><br><br>
 all of my lorded characters so far . i am actively working to get more strategist and tank lords !! emma frost and devil dinosaur are my first choices for tank lords !!</sub>
     <br><br><br>
+  <p align="center"><sub> peak rank : plat 1</sub>
+      <br><br><br>
   <p align="center"><img src="https://static.wikia.nocookie.net/marvel-rivals/images/6/60/Champion_Icon_Ultron_Animated.gif/revision/latest?cb=20260223021643" width="150"> <img src="https://static.wikia.nocookie.net/marvel-rivals/images/5/52/Champion_Icon_Jeff_the_Land_Shark_Animated.gif/revision/latest?cb=20260223013950" width="150"> <img src="https://static.wikia.nocookie.net/marvel-rivals/images/9/95/Lord_Icon_Gorr.png/revision/latest?cb=20260910033756" width="150">
   <br><br>
   <p align="center"><img src="https://static.wikia.nocookie.net/marvel-rivals/images/e/e4/Lord_Icon_Deadpool.png/revision/latest?cb=20260123053121" width="150"> <img src="https://static.wikia.nocookie.net/marvel-rivals/images/9/93/Lord_Icon_Hela.png/revision/latest?cb=20251101024409" width="150"> <img src="https://static.wikia.nocookie.net/marvel-rivals/images/e/eb/Lord_Icon_Moon_Knight.png/revision/latest?cb=20251101025105" width="150"> <img src="https://static.wikia.nocookie.net/marvel-rivals/images/4/45/Lord_Icon_Luna_Snow.png/revision/latest?cb=20251101024846" width="150">
