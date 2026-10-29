@@ -81,46 +81,6 @@ ultron x me , gorr x me , ultron x gorr the god butcher , ultron x hela (my boyf
   <br>
 </details>
 
-<!-- THIRD DROPDOWN: RIVALS -->
-<details>
-  <summary><b> <p align="center">⬇️ marvel rivals ⬇️</p></b></summary>
-  <br>
-  <br><br><br>
-<sub>if i am offtab , one of the things i am most likely doing is playing marvel rivals .
-i am usually playing this game by myself / solo queueing , but sometimes my boyfriend + irl best friend queues with me as well .
-and i am more than happy to make more friends on this game to play with so i'm not always by myself !! <3</sub>
- <br><br><br>
-  <p align="center">· · ────── ꒰ঌ·✦·໒꒱ ────── · ·
-  <br><br><br>
-  <p align="center"><img src="https://i.postimg.cc/bwMBxLWV/Untitled725-20261016012827.png" width="435">
-    <br><br><br>
-  <p align="center">· · ────── ꒰ঌ·✦·໒꒱ ────── · ·
-        <br><br><br>
-<p align="center">UID : 755465207
-
-<sub>i'm an ultron , gorr the god butcher , and jeff the land shark main !! i mostly play support . i can fill other roles if needed , but i can't promise my worth . </sub>
-  <p align="center"><img src="https://i.postimg.cc/MpZcBSJs/7814EAE2-2B81-4AEB-B198-33DB970DEAE0.png" width="435">
-    <br><br><br>
-    
-  <sub>i dont play ranked often , i mostly queue in quick play for the fun and vibes since im usually solo ! i do not like to play competitive game modes like marvel rivals and fortnite by myself , and that is one of the main reasons that i rarely queue for comp .. i'm based in PC servers so i'm happy to queue ranked with anybody in those servers . i definitely need friends to play with .
-    <br><br><br>
-all of my lorded characters so far . i am actively working to get more strategist and tank lords !! emma frost and devil dinosaur are my first choices for tank lords !!</sub>
-    <br><br><br>
- <p align="center"><sub> current season rank : diamond 2</sub>
-  <p align="center"><sub> peak rank : diamond 2</sub>
-      <br><br><br>
-  <p align="center"><img src="https://static.wikia.nocookie.net/marvel-rivals/images/6/60/Champion_Icon_Ultron_Animated.gif/revision/latest?cb=20260223021643" width="150"> <img src="https://static.wikia.nocookie.net/marvel-rivals/images/5/52/Champion_Icon_Jeff_the_Land_Shark_Animated.gif/revision/latest?cb=20260223013950" width="150"> <img src="https://static.wikia.nocookie.net/marvel-rivals/images/9/95/Lord_Icon_Gorr.png/revision/latest?cb=20260910033756" width="150">
-  <br><br>
-  <p align="center"><img src="https://static.wikia.nocookie.net/marvel-rivals/images/e/e4/Lord_Icon_Deadpool.png/revision/latest?cb=20260123053121" width="150"> <img src="https://static.wikia.nocookie.net/marvel-rivals/images/9/93/Lord_Icon_Hela.png/revision/latest?cb=20251101024409" width="150"> <img src="https://static.wikia.nocookie.net/marvel-rivals/images/e/eb/Lord_Icon_Moon_Knight.png/revision/latest?cb=20251101025105" width="150"> <img src="https://static.wikia.nocookie.net/marvel-rivals/images/4/45/Lord_Icon_Luna_Snow.png/revision/latest?cb=20251101024846" width="150">
-    <br><br><br>
-  <p align="center"><sub>- currently on a grind to lord Invis , Rocket , & Adam Warlock !! -</sub>
-    
-   <p align="center"> </p>
-
-  <p align="center">—————————————————————————————————————————
-
-   <br>
-</details>
 
   <p align="center">—————————————————————————————————————————
 
