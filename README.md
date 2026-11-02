@@ -1,5 +1,5 @@
 <br><br><br> 
-<p align="center"><sub>better viewed on PC !!</sub>
+<p align="center"><sub>better viewed on desktop !!</sub>
     <br><br>
   <p align="center">· · ────── ꒰ঌ·✦·໒꒱ ────── · ·
         <br><br>
