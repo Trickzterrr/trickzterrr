@@ -37,7 +37,4 @@
   <br>
 </details>
 
-
-  <p align="center">—————————————————————————————————————————
-
   ![Avatar](https://github.com/user-attachments/assets/ee628553-f3d6-443e-a296-5e2a10594b40)
