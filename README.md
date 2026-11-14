@@ -4,7 +4,7 @@
   <p align="center">· · ────── ꒰ঌ·✦·໒꒱ ────── · ·
         <br><br>
 <p align="center">
-&emsp; ‘ <i> <a href="https://rentry.co/ultronsbeloved">strawpage</a>　  <a href="https://pronouns.cc/@Ultron">pronouns.cc</a> 　  <a href="https://www.tiktok.com/@trickzterrr">TikTok</a>　◝   ,</i> 
+&emsp; ‘ <i> <a href="https://ultronswife.straw.page">strawpage</a>　  <a href="https://pronouns.cc/@Ultron">pronouns.cc</a> 　  <a href="https://www.tiktok.com/@trickzterrr">TikTok</a>　◝   ,</i> 
 </p> 
 
 <p align="center">
