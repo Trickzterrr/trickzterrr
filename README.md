@@ -11,8 +11,6 @@
 &emsp;‘ <i><a href="https://ultron15.atabook.org/">sign ata here </a>　◝   ,</i> 
 </p>
   <br><br>
-<p align="center"> <sub>🌙: available  　 ⛔: offtab / afk</sub>  　 
-    <br><br>
   <p align="center">· · ────── ꒰ঌ·✦·໒꒱ ────── · ·
         <br><br>
  <p align="center">
