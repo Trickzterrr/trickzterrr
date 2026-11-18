@@ -34,4 +34,4 @@
   <br>
 </details>
 
-  ![Avatar](https://github.com/user-attachments/assets/ee628553-f3d6-443e-a296-5e2a10594b40)
+  <p align="center"><img src="https://i.postimg.cc/pXXgh4Xf/3689EF45-FF9D-401C-89DF-56ABEC5300D5.png" width="550">
