@@ -32,7 +32,7 @@
 
 </details>
 
-  <p align="center">LAZY BYI while im at college, will change later
+  <p align="center">LAZY BYI while im at college (im on laptop so ill edit it when i can)
 
   <p align="center"> int: i am okay with interacting, but please whisper to me to int. Ive been iffy to interact with people lately due to my actively drained mental health state. Int if you love Marvel, FNAF, Poppy Playtime, Sonic the hedgehog, Squid Game. Int if you love to draw, play games, or love pets! I myself am a huge gamer and i love to draw as well.
 
