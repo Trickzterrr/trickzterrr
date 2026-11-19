@@ -30,6 +30,13 @@
  <br><br>
 <p align="center">—————————————————————————————————————————
 
+</details>
+
+  <p align="center">LAZY BYI while im at college, will change later
+
+  <p align="center"> int: i am okay with interacting, but please whisper to me to int. Ive been iffy to interact with people lately due to my actively drained mental health state. Int if you love Marvel, FNAF, Poppy Playtime, Sonic the hedgehog, Squid Game.
+
+  <p align="center">dni: i originally said on my sp that i dont really have a dni, but due to a lot of recent events, plus my currently bad mental health,i've switched up on certain things. Please DNI with me if you're a genuinely rude or judgemental person, i take a lot of things very personally. Dni if you copy pony town skins, inspo is okay with me but full on copying and color picking is where i am not okay with you. dni if you're an ultron yume/irl double, i was quite open to interact with other ultron enjoyers, but because of multiple negative interactions across the fandom (PT, discord, github, etc), i am not comfortable with interacting. no hate and no shade, you're all valid/canon too! ,  
    
   <br>
 </details>
