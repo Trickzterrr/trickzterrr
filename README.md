@@ -27,6 +27,7 @@
 <p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Press+Start+2P&size=15&duration=2000&pause=900&color=F09B58&background=BF32FF00&center=true&vCenter=true&width=435&lines=officially++pony+town's+ultron;%40+pt-hall-of-media" alt="Typing SVG" /></a>
   <br>
 <sub>recognised by <a href="https://github.com/pt-hall-of-media">@pt-hall-of-media</a>, <a href="https://github.com/pt-everypony">@pt-everypony</a>, & <a href="https://github.com/pt-walk-of-fame">@pt-walk-of-fame</a> as Pony Town's Ultron !</sub>
+    <p align="center"><sub>recognised by <a href="https://github.com/pt-walk-of-fame">@pt-walk-of-fame</a> as Ultron's wife !</sub>
     <br>
 <p align="center"><sub>recognised by <a href="https://github.com/marvelous-pt">@marvelous-pt</a> as Pony Town's Nam-gyu & the #1 Gorr the God Butcher x Ultron Shipper !</sub>
  <br><br>
