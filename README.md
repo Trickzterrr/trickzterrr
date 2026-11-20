@@ -28,7 +28,7 @@
   <br>
 <sub>recognised by <a href="https://github.com/pt-hall-of-media">@pt-hall-of-media</a>, <a href="https://github.com/pt-everypony">@pt-everypony</a>, & <a href="https://github.com/pt-walk-of-fame">@pt-walk-of-fame</a> as Pony Town's Ultron !</sub>
     <br>
-<p align="center"><sub>recognised by <a href="https://github.com/marvelous-pt">@marvelous-pt</a> as Pony Town's Nam-gyu !</sub>
+<p align="center"><sub>recognised by <a href="https://github.com/marvelous-pt">@marvelous-pt</a> as Pony Town's Nam-gyu & the #1 Gorr the God Butcher x Ultron Shipper !</sub>
  <br><br>
 <p align="center">—————————————————————————————————————————
 
