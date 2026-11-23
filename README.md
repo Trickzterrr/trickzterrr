@@ -8,7 +8,15 @@
 
 <p align="center"><img src="https://i.postimg.cc/yxXD5f5W/102DC487-5700-42B1-BF0F-C000B653DD11.png" width="600">
 </p>
-
+        <br><br>
+<p align="center">
+&emsp; <i><a href="https://ultron15.atabook.org/">atabook</a>   ,</i> &emsp; ‘ <i> <a href="https://ultronswife.straw.page">strawpage</a>  ,</i> 
+    <p align="center">
+</p> 
+</p>
+  <br>
+<p align="center">—————————————————————————————————————————
+    
 </div>
  <p align="center">
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Press+Start+2P&size=15&duration=2000&pause=900&color=9202F0&background=BF32FF00&center=true&vCenter=true&width=435&lines=officially+pony+town's+ultron" alt="Typing SVG" /></a>
@@ -18,7 +26,6 @@
     <br>
 <p align="center"><sub>recognised by <a href="https://github.com/marvelous-pt">@marvelous-pt</a> as Pony Town's Nam-gyu & the #1 Gorr the God Butcher x Ultron Shipper !</sub>
  <br><br>
-<p align="center">—————————————————————————————————————————
 
 
   <br>
