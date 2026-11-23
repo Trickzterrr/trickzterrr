@@ -10,7 +10,7 @@
 </p>
         <br><br>
 <p align="center">
-&emsp; <i><a href="https://ultron15.atabook.org/">atabook</a>   ,</i> &emsp; ‘ <i> <a href="https://ultronswife.straw.page">strawpage</a>  ,</i> 
+&emsp; ‘ <i><a href="https://ultron15.atabook.org/">atabook</a>   ,</i> &emsp; ‘ <i> <a href="https://ultronswife.straw.page">strawpage</a>  ,</i> 
     <p align="center">
 </p> 
 </p>
