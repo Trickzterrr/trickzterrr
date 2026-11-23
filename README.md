@@ -8,7 +8,7 @@
 
 <p align="center"><img src="https://i.postimg.cc/yxXD5f5W/102DC487-5700-42B1-BF0F-C000B653DD11.png" width="600">
 </p>
-        <br><br>
+        <br>
 <p align="center">
 &emsp; ‘ <i><a href="https://ultron15.atabook.org/">atabook</a>   ,</i> &emsp; ‘ <i> <a href="https://ultronswife.straw.page">strawpage</a>  ,</i> 
     <p align="center">
